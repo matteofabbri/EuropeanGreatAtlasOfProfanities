@@ -54,7 +54,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - To mouni tis manas sou: The pussy of your mother
 - To mouni pou se petage: The pussy that threw you out
 - Fae skata: Eat shit
-
+- Gamo to spiti sou: Fuck your house
 ## Italian
 - Figa: Cunt. Can be also used as space between phrases.
 - Cazzo: Dick. Can be also used as space between phrases.
