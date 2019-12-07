@@ -100,6 +100,10 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Gamo to soi sou / Γαμώ το σόι σου: I fuck your family
 - Koloxontros / Κωλόχοντρος: Fat fuck (e.g. *You are a fat fuck*)
 - Arxidi / Αρχίδι: Ballsack
+- Gamo to spiti sou / Γαμώ το σπίτι σου: I fuck your house
+- Poutsoglifits / Πουτσογλίφτης: cock licker
+- Mikropsolis / Μικροψώλης: A man with a tiny dick
+- Patsolas / Πατσόλας: Fat fuck (similar to Koloxontros)
  
 ## Icelandic
 - Ansans / Andskotinn: Devil (*literally: the one who shoots against you*)(WTF ?!?)  
