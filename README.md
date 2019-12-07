@@ -73,6 +73,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Mounopano: Pathetic (*litteral: medieval tampoon*) 
 - Ilithie: Idiot
 - Vlaka: Stupid
+- Ai sto Diaolo: Go the Hell (*litteral go to devil*)
    
 ## Italian
 - Figa: Cunt. Can be also used as space between phrases.
