@@ -21,6 +21,8 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Te qift kina nanen: May all hina's population fuck yout mom
 - Te qifsha t'bardhet e syve: fuck your eye whites (WTF ?!?)
 - N'pidh t'satam: In your mother's pussy (*when somebody asks where are you*)
+- Shkërdhat mutit - Shitty fucker
+- Bole kandarit - Dumbass
 
 ## Czech
 - Prdel: Ass
