@@ -17,6 +17,8 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Kanker: (*You are a*) Cancer
 
 ## French
+- Enculer: Fuck (*literally: fuck in the ass*)
+- Enculé: Asshole (*litterally: that as been fucked in the ass*)
 - Merde: Shit
 - Va te faire foutre: Go fuck yourself
 - Connard: Moron
@@ -25,8 +27,9 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Degage: Fuck off
 - Fils de pute / Salaud: Son of a bitch
 - Sac a merde: (*You are a*) bag of shit
-- Putain / Salope: Bitch
-- Enculer / Va te faire enculer / Va te faire foutre: Go fuck yourself
+- Putain: Oh fuck (*literraly: bitch*)
+- Pute / Salope: Bitch
+- Va te faire enculer / Va te faire foutre: Go fuck yourself
 - Mange tes morts: Eat your dead relatives
 
 
