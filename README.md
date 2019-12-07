@@ -28,7 +28,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Klere: (I hope you take) Cholera
 - Minkukel: Retarded
 - Pleurislijer / Tering / Teringlijer: (I hope you take) Tuberculosis
-- Polio: I had been retarded by Poliomyelitis
+- Polio: You had been retarded by Poliomyelitis
 - Pokke: (I hope you take) Smallpox
 - Stom: Retarded
 - Takke:(*You look retarded as you had a*) Stroke
