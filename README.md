@@ -108,6 +108,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Caralhos t'a fodam: May cocks or something fuck you 
 - Caralho: Dick
 - <A Topic> Caralho: Circle jerk about <A Topic>
+- Esqueceste-te do Cona de sabão: You have a dirty pussy (TO BE CHECKED)
 
 ## Polish
 - Ja pierdole: (*litterla: I'm fucking*) Fuck
