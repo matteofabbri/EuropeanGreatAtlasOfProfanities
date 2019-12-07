@@ -1,7 +1,7 @@
 # European Great Atlas Of Profanities
 Building a guide for swearwords, profanities and insults in every language of The Continent
 
-##Albanian
+## Albanian
 - Ti qifsha merimangat mbas bojlerit: You were spider after boiler (WTF?!?)
 
 ## Czech
