@@ -2,7 +2,7 @@
 Building a guide for swearwords, profanities and insults in every language of The Continent
 
 ## Albanian
-- Ti qifsha merimangat mbas bojlerit: You were spider after boiler (WTF?!?)
+- Ti qifsha merimangat mbas bojlerit: I will fuckk the spiders behind the water heater in your house
 
 ## Czech
 - Prdel: Ass
