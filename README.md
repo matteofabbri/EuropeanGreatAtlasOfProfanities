@@ -27,7 +27,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 ## Cechia
 - Prdel: Ass
 - Prdele <Subject>: That/Those fucking <subject> (*"Ty prdele cesky"* - *"Those fucking czechs"*)
-- Kurwa: Bitch
+- Kurwa: Whore
 - Tivole: Fuck you (*also: Good Morning / Good Nigth / Hello / Yes / No / Maybe / Punctuation sign*)
 - Kurwa do pici: (litteral: *That bitch is a prostitute*) Turbo Fuck Off
     - Generally used to show that you are member of the finest society and the alpha male of the pack
@@ -176,7 +176,14 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Grunho = dipshit
     
 ## Poland
-- Ja pierdole: (*litterla: I'm fucking*) Fuck
+- Cipa: Cunt
+- Chuj / Kutas: Dick
+- Dziwka: Whore
+- Certolić się / Pieprzyć / Pierdolić: Fuck
+- Ruchać / Rżnąć / Wypierdalać: Fuck someone
+- Robić loda: Give a blowjob (*litteral: make ice cream*)
+- Ja pierdole: Fuck (*litteral: I'm fucking*)
+- Pedał: Faggot
 
 ## Romania
 - Such pula: Suck my dick
