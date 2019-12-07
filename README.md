@@ -68,6 +68,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - To mouni pou se petage: The pussy that threw you out
 - Fae skata: Eat shit
 - Gamo to spiti sou: Fuck your house
+- Θα μου κλάσεις τα αρχίδια: You will fart my balls (!Need translitteration)
     
 ## Italian
 - Figa: Cunt. Can be also used as space between phrases.
