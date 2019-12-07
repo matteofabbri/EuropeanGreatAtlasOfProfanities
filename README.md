@@ -112,6 +112,12 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - <A Topic> Caralho: Circle jerk about <A Topic>
 - Esqueceste-te do Cona de sabão: You have a dirty pussy (TO BE CHECKED)
 - Vai levar no cu, paneleiro do caralho: LGBT way to say "Fuck off" to a male individual
+- Panão: Dumbass
+- Rebo: Nitwit
+- Cara de cu: Assface
+- Cara de cu à paisana = Lit
+- Grunho = dipshit
+    
 ## Polish
 - Ja pierdole: (*litterla: I'm fucking*) Fuck
 
