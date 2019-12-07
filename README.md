@@ -40,7 +40,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 ## Denmark
 - Fanden: Fuck
 
-##Finland
+## Finland
 - Perkele: Fuck
 
 ## Netherlands
