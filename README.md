@@ -26,7 +26,20 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Kankeren: To bitch (*literally: to cancer*)
 - Klere: (I hope you take) Cholera
 - Minkukel: Retarded
-
+- Pleurislijer / Tering / Teringlijer: (I hope you take) Tuberculosis
+- Polio: I had been retarded by Poliomyelitis
+- Pokke: (I hope you take) Smallpox
+- Stom: Retarded
+- Takke:(*You look retarded as you had a*) Stroke
+- Tyfus: (I hope you take) Typhoid fever
+- Vinkentering: (I hope you take) Finch tuberculosis
+- Godverdomme <The Target>: May god dam <The Target>
+- Anaalgeneraal: Hyper mega faggot 
+- Anusridder: Faggot
+- Bitch: Bitch
+- Dikzak: Fat bag
+- Drol: Turd
+    
 ## French
 - Enculer: Fuck (*literally: fuck in the ass*)
 - Enculé: Asshole (*litterally: that as been fucked in the ass*)
