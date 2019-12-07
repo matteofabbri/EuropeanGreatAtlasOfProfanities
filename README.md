@@ -10,7 +10,8 @@ Building a guide for swearwords, profanities and insults in every language of Th
     - Generally used to show that you are member of the finest society and the alpha male of the pack
 - Buzne: Faggot
 - Tepla: Lesbian
-- Čůrak: Dick / Dickhead / Son of a bitch
+- Čůrak / Zmrd: Dick / Dickhead / Son of a bitch
+- Baba: Old bicth
 
 ## Dutch
 - Kanker: (*You are a*) Cancer
