@@ -131,6 +131,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Satfläsk: Pork of Satan
 - Jävla luder: Fucking whore
 - äckelsvin: Creepy pig
+- Kuken: Cock
 
 ## Spanish
 - Capullo: Jerk
