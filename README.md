@@ -14,6 +14,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Ti qifsha merimangat mbas bojlerit: I will fuck the spiders behind the water heater in your house
 - Te qifsha listen e dasmes pillropsh: I will fuck your wedding guest,you pussytribe.
 - Te qifsha motren: I will fuck your sister
+- Karakurv: Dicks bitch (*kara - dicks & kurv - bitch *)
 
 ## Czech
 - Prdel: Ass
