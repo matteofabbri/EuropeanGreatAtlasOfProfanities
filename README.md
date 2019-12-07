@@ -1,6 +1,9 @@
 # European Great Atlas Of Profanities
 Building a guide for swearwords, profanities and insults in every language of The Continent
 
+##Albanian
+- Ti qifsha merimangat mbas bojlerit: You were spider after boiler (WTF?!?)
+
 ## Czech
 - Prdel: Ass
 - Prdele <Subject>: That/Those fucking <subject> (*"Ty prdele cesky"* - *"Those fucking czechs"*)
