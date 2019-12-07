@@ -2,8 +2,18 @@
 Building a guide for swearwords, profanities and insults in every language of The Continent
 
 ## Albanian
+- Te qifsha: Fuck you
+- Ha Mut: Eat shit
+- Lapeci / Pidhi: Cunt
+- Lavire: Whore
+- Simge: Your dads a shopkeeper (WTF ?!?)
+- Ta qifsha nanen: Fuck you mother
+- Ta qift bota nanen: May world fuck your mother
+- Te qifsha motren: I will fuck you
+- Te qifsha pidhin e mamit: I'll fuck your mom's pussy
 - Ti qifsha merimangat mbas bojlerit: I will fuck the spiders behind the water heater in your house
 - Te qifsha listen e dasmes pillropsh: I will fuck your wedding guest,you pussytribe.
+- Te qifsha motren: I will fuck your sister
 
 ## Czech
 - Prdel: Ass
