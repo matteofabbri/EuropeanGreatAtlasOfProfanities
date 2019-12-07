@@ -47,6 +47,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Malakas / Μαλάκας: Asshole
 - Gamo to christo su: I fuck your jesus. Often used against objects or situations.
 - Gamo tin panagia su: I fuck your Holy Mary
+- Gamo to mouni pou se glistrage: I will fuck your mother
 
 ## Italian
 - Figa: Cunt. Can be also used as space between phrases.
