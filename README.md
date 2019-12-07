@@ -125,7 +125,8 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Patsolas / Πατσόλας: Fat fuck (similar to Koloxontros)
  
 ## Iceland
-- Ansans / Andskotinn: Devil (*literally: the one who shoots against you*)(WTF ?!?)  
+- Ansans / Andskotinn: Devil (*literally: the one who shoots against you*)(WTF ?!?) 
+- Drullusokkur: Mud / Shit / Diarrhea / Sock
   
 ## Italy
 - Figa: Cunt. Can be also used as space between phrases.
