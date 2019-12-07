@@ -38,7 +38,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Puttana tua madre: your mom is a bitch
 - Succhiamelo / Succhiami il cazzo / Suca / Puppa / Ciccamelo : Suck my dick
 - Baciamelo: Kiss it ( my dick )
-- Dio <List of animals and/or adjectives>: God is a <List>.
+- Dio <List of animals and/or adjectives>: God is a <List of animals and/or adjectives>.
   - Social recognition is awarded for most complex and creative combinations.
   - Most common use: Dio Porco ( God is a pig )
 - Gesu <List of animals and/or adjectives>: Jesus is a <List of animals and/or adjectives>.
