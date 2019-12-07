@@ -1,5 +1,5 @@
 # European Great Atlas Of Profanities
-Building a guide for swearwords, profanities and insults in every language of The Union
+Building a guide for swearwords, profanities and insults in every language of The Continent
 
 ## Czech
 - Prdel: Ass
