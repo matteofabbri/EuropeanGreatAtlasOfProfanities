@@ -85,6 +85,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Skit/ Skitt/ Drit / Dritt / Jävlar: Shit
 - Kioskmongo / Magnumidiot / : Moron
 - Attans bananer: Darn Bananas (WTF ?!?)
+- Satfläsk: Moron bastard
 
 ## Spanish
 - Capullo: Jerk
