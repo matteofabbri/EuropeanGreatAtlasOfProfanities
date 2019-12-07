@@ -55,6 +55,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - To mouni pou se petage: The pussy that threw you out
 - Fae skata: Eat shit
 - Gamo to spiti sou: Fuck your house
+    
 ## Italian
 - Figa: Cunt. Can be also used as space between phrases.
 - Cazzo: Dick. Can be also used as space between phrases.
@@ -112,6 +113,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Attans bananer: Darn Bananas (WTF ?!?)
 - Satfläsk: Moron bastard
 - Horunge: Whore kid
+- Satfläsk: Pork of Satan
 
 ## Spanish
 - Capullo: Jerk
