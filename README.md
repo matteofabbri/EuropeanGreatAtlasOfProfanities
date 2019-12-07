@@ -37,6 +37,12 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Baba: Old bicth
 - Zkurvysyn: Son of a bitch
 
+## Denmark
+- Fanden: Fuck
+
+##Finland
+- Perkele: Fuck
+
 ## Netherlands
 - Achterlijk: Retarded
 - Autist: Autistic
@@ -76,6 +82,9 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Pute / Salope: Bitch
 - Va te faire enculer / Va te faire foutre: Go fuck yourself
 - Mange tes morts: Eat your dead relatives
+
+## Norway
+- Faen / Fanden: Fuck
 
 ## Greece
 - Malakas / Μαλάκας: Jerk / Asshole / Wanker
