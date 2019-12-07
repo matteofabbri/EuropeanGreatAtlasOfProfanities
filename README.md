@@ -114,6 +114,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Satfläsk: Moron bastard
 - Horunge: Whore kid
 - Satfläsk: Pork of Satan
+- Jävla luder: Fucking whore
 
 ## Spanish
 - Capullo: Jerk
