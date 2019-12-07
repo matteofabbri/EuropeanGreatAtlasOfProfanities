@@ -70,6 +70,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Fae skata: Eat shit
 - Gamo to spiti sou: Fuck your house
 - Θα μου κλάσεις τα αρχίδια: You will fart my balls (!Need translitteration)
+- Mounopano: Pathetic (*litteral: medieval tampoon*) 
     
 ## Italian
 - Figa: Cunt. Can be also used as space between phrases.
