@@ -63,8 +63,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Filho da puta: Son of a bitch
 - Vai-te foder: Fuck you
 - Vai pró caralho: Fuck you
-
-Vai à merda = fuck you
+- Vai à merda = fuck you
 
 ## Polish
 - Ja pierdole: (*litterla: I'm fucking*) Fuck
