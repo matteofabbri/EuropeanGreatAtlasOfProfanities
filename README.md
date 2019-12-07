@@ -136,6 +136,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - äckelsvin: Creepy pig
 - Kuken: Cock
 - Vad i kuken?! What the fuck (*literraly: what the cock?*)
+- Fettmablobb: Fat blob
 
 ## Spanish
 - Capullo: Jerk
