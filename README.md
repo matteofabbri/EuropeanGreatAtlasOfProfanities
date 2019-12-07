@@ -134,6 +134,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Jävla luder: Fucking whore
 - äckelsvin: Creepy pig
 - Kuken: Cock
+- Vad i kuken?! What the fuck (*literraly: what the cock?*)
 
 ## Spanish
 - Capullo: Jerk
