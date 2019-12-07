@@ -82,6 +82,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Vai à merda = fuck you
 - Fode-te filho de 30 putas corno do caralho: (*litteral: Fuck you son of 30 bitches, your wife is cheating on you*) Very long fuck you
 - Cabrão de merda: (*litteral: Horse of shit*) Fucking shitty horse
+- Caralhos t'a fodam: May cocks or something fuck you 
 
 ## Polish
 - Ja pierdole: (*litterla: I'm fucking*) Fuck
