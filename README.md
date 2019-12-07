@@ -78,7 +78,10 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Pusi mi kurac: Suck my dick
 
 ## Swedish
-- Fan: (Go to) Hell
+- Fan / Helvete: (Go to) Hell
+- Skit/ Skitt/ Drit / Dritt / Jävlar: Shit
+- Kioskmongo / Magnumidiot / : Moron
+- Attans bananer: Darn Bananas (WTF ?!?)
 
 ## Spanish
 - Capullo: Jerk
