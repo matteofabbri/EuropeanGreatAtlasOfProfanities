@@ -16,6 +16,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Tepla: Lesbian
 - Čůrak / Zmrd: Dick / Dickhead / Son of a bitch
 - Baba: Old bicth
+- Zkurvysyn: Son of a bitch
 
 ## Dutch
 - Achterlijk: Retarded
