@@ -1,7 +1,7 @@
 # European Great Atlas Of Profanities
 Building a guide for swearwords, profanities and insults in every language of The Continent
 
-## Albanian
+## Albania
 - Te qifsha: Fuck you
 - Ha Mut: Eat shit
 - Lapeci / Pidhi: Cunt
@@ -24,7 +24,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Shkërdhat mutit - Shitty fucker
 - Bole kandarit - Dumbass
 
-## Czech
+## Cechia
 - Prdel: Ass
 - Prdele <Subject>: That/Those fucking <subject> (*"Ty prdele cesky"* - *"Those fucking czechs"*)
 - Kurwa: Bitch
@@ -37,7 +37,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Baba: Old bicth
 - Zkurvysyn: Son of a bitch
 
-## Dutch
+## Netherlands
 - Achterlijk: Retarded
 - Autist: Autistic
 - Debiel: Handicapped
@@ -61,7 +61,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Dikzak: Fat bag
 - Drol: Turd
     
-## French
+## France
 - Enculer: Fuck (*literally: fuck in the ass*)
 - Enculé: Asshole (*litterally: that as been fucked in the ass*)
 - Merde: Shit
@@ -77,7 +77,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Va te faire enculer / Va te faire foutre: Go fuck yourself
 - Mange tes morts: Eat your dead relatives
 
-## Greek
+## Greece
 - Malakas / Μαλάκας: Jerk / Asshole / Wanker
 - Gamo to christo su: I fuck your jesus. Often used against objects or situations.
 - Gamo tin panagia su: I fuck your Holy Mary
@@ -107,10 +107,10 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Mikropsolis / Μικροψώλης: A man with a tiny dick
 - Patsolas / Πατσόλας: Fat fuck (similar to Koloxontros)
  
-## Icelandic
+## Iceland
 - Ansans / Andskotinn: Devil (*literally: the one who shoots against you*)(WTF ?!?)  
   
-## Italian
+## Italy
 - Figa: Cunt. Can be also used as space between phrases.
 - Cazzo: Dick. Can be also used as space between phrases.
 - Merda: Shit
@@ -133,7 +133,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Vaffanculo / Vai a fare in culo: Go fuck yourself in the ass.
 - Faccia da cazzo: (*litteral: Dick like face*) Moron
 
-## Portuguese
+## Portugal
 - Merda: Shit
 - Cona: Cunt
 - Paneleiro / Bicha / Viado: Faggot
@@ -157,17 +157,17 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Cara de cu à paisana = Lit
 - Grunho = dipshit
     
-## Polish
+## Poland
 - Ja pierdole: (*litterla: I'm fucking*) Fuck
 
-## Romanian
+## Romania
 - Such pula: Suck my dick
 - Futute'n Cur: Fuck yourself in the ass
 
-## Serbian:
+## Serbia:
 - Pusi mi kurac: Suck my dick
 
-## Swedish
+## Sweden
 - Fan: Fuck
 - Jävlar: Damn it
 - Helvete: (Go to) Hell
@@ -187,7 +187,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Äckliga sönderknullade fucking fitthora med läderfejs: Disgusting Fucked until Broken Fucking Cunt-Whore with a Leather-Face
 - Rövuggla: Ass Owl
 
-## Spanish
+## Spain
 - Capullo: Jerk
 - Gilipollas: Shithead
 - Tonto del culo: (*litteral: An idiot of the ass*) Dumbass
@@ -200,5 +200,5 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Pendejo: Moron
 - Chinga tu madre / Chinga tu puta madre: Fuck your mother / Fuck that bitch of your mother
 
-## Russian:
+## Russia:
 - Cyka blyat: Fucking bitch
