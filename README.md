@@ -93,6 +93,8 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Fode-te filho de 30 putas corno do caralho: (*litteral: Fuck you son of 30 bitches, your wife is cheating on you*) Very long fuck you
 - Cabrão de merda: (*litteral: Horse of shit*) Fucking shitty horse
 - Caralhos t'a fodam: May cocks or something fuck you 
+- Caralho: Dick
+- <A Topic> Caralho: Circle jerk about <A Topic>
 
 ## Polish
 - Ja pierdole: (*litterla: I'm fucking*) Fuck
@@ -115,6 +117,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Horunge: Whore kid
 - Satfläsk: Pork of Satan
 - Jävla luder: Fucking whore
+- äckelsvin: Creepy pig
 
 ## Spanish
 - Capullo: Jerk
