@@ -64,6 +64,8 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Vai-te foder: Fuck you
 - Vai pró caralho: Fuck you
 - Vai à merda = fuck you
+- Fode-te filho de 30 putas corno do caralho: (*litteral: Fuck you son of 30 bitches, your wife is cheating on you*) Very long fuck you
+- Cabrão de merda: (*litteral: Horse of shit*) Fucking shitty horse
 
 ## Polish
 - Ja pierdole: (*litterla: I'm fucking*) Fuck
@@ -74,6 +76,9 @@ Building a guide for swearwords, profanities and insults in every language of Th
 
 ## Serbian:
 - Pusi mi kurac: Suck my dick
+
+## Swedish
+- Fan: (Go to) Hell
 
 ## Spanish
 - Capullo: Jerk
