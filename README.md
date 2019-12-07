@@ -44,10 +44,16 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Mange tes morts: Eat your dead relatives
 
 ## Greek
-- Malakas / Μαλάκας: Asshole
+- Malakas / Μαλάκας: Jerk / Asshole
 - Gamo to christo su: I fuck your jesus. Often used against objects or situations.
 - Gamo tin panagia su: I fuck your Holy Mary
 - Gamo to mouni pou se glistrage: I will fuck your mother
+- Ante gamisou: Go fuck yourself
+- Gamo to <The Target>: I fuck <The Target>
+- Poutana: Whore
+- To mouni tis manas sou: The pussy of your mother
+- To mouni pou se petage: The pussy that threw you out
+- Fae skata: Eat shit
 
 ## Italian
 - Figa: Cunt. Can be also used as space between phrases.
