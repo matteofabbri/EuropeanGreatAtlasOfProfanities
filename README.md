@@ -86,6 +86,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Kioskmongo / Magnumidiot / : Moron
 - Attans bananer: Darn Bananas (WTF ?!?)
 - Satfläsk: Moron bastard
+- Horunge: Whore kid
 
 ## Spanish
 - Capullo: Jerk
