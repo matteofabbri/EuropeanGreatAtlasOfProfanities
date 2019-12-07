@@ -3,6 +3,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 
 ## Albanian
 - Ti qifsha merimangat mbas bojlerit: I will fuck the spiders behind the water heater in your house
+- Te qifsha listen e dasmes pillropsh: I will fuck your wedding guest,you pussytribe.
 
 ## Czech
 - Prdel: Ass
