@@ -32,6 +32,8 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Va te faire enculer / Va te faire foutre: Go fuck yourself
 - Mange tes morts: Eat your dead relatives
 
+## Greek
+- Malakas / Μαλάκας: Asshole  
 
 ## Italian
 - Figa: Cunt. Can be also used as space between phrases.
