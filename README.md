@@ -43,6 +43,14 @@ Building a guide for swearwords, profanities and insults in every language of Th
 ## Finland
 - Perkele: Fuck
 
+## Germany
+- Arschgeige: Faggot (*litteral: play violin with his ass*)
+- Bananenbieger: Faggot (*litteral: bends with his ass*)
+- Arsch mit ohren: Moron (*litteral: butt with ears*)
+- Stinkstifel: Redneck  (*litteral: stinky feet*)
+- Erbenzähler / Ameisentätowierer: Autistic
+- Heißluftgebläse: Chatterbox (*litteral: (Please) eat a gun*)
+
 ## Netherlands
 - Achterlijk: Retarded
 - Autist: Autistic
