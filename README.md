@@ -100,7 +100,10 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Gamo to soi sou / Γαμώ το σόι σου: I fuck your family
 - Koloxontros / Κωλόχοντρος: Fat fuck (e.g. *You are a fat fuck*)
 - Arxidi / Αρχίδι: Ballsack
-   
+ 
+## Icelandic
+- Ansans / Andskotinn: Devil (*literally: the one who shoots against you*)(WTF ?!?)  
+  
 ## Italian
 - Figa: Cunt. Can be also used as space between phrases.
 - Cazzo: Dick. Can be also used as space between phrases.
