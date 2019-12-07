@@ -186,6 +186,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Sladdriga Gasselkukförhud: Sloppy Gazelle-Foreskin
 - Äckliga sönderknullade fucking fitthora med läderfejs: Disgusting Fucked until Broken Fucking Cunt-Whore with a Leather-Face
 - Rövuggla: Ass Owl
+- Babian arsle: Baboon arse
 
 ## Spain
 - Capullo: Jerk
