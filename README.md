@@ -23,6 +23,10 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - N'pidh t'satam: In your mother's pussy (*when somebody asks where are you*)
 - Shkërdhat mutit - Shitty fucker
 - Bole kandarit - Dumbass
+- Ta qi kush ta bon buken: I will fuck whoever prepares your meal.
+- Do te shti prej ku ke dal: I will shove you back from whence you came.
+- Per ty nena edhe halla jan nje njeri: I your mom and aunt are the same person.
+- Ta qi nonen ne varp: I will fuck your mom in her grave.
 
 ## Cechia
 - Prdel: Ass
