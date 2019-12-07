@@ -127,6 +127,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 ## Iceland
 - Ansans / Andskotinn: Devil (*literally: the one who shoots against you*)(WTF ?!?) 
 - Drullusokkur: Mud / Shit / Diarrhea / Sock
+- Tussa / Drusla: cunt
   
 ## Italy
 - Figa: Cunt. Can be also used as space between phrases.
