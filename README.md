@@ -17,7 +17,15 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Baba: Old bicth
 
 ## Dutch
+- Achterlijk: Retarded
+- Autist: Autistic
+- Debiel: Handicapped
+- Downie / Mongool: With Down Syndrom
 - Kanker: (*You are a*) Cancer
+- Krijg de kanker: Get the cancer
+- Kankeren: To bitch (*literally: to cancer*)
+- Klere: (I hope you take) Cholera
+- Minkukel: Retarded
 
 ## French
 - Enculer: Fuck (*literally: fuck in the ass*)
