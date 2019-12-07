@@ -143,6 +143,10 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Kuken: Cock
 - Vad i kuken?! What the fuck (*literraly: what the cock?*)
 - Fettmablobb: Fat blob
+- Super äckelsvin: Super Disgusting-Swine
+- Sladdriga Gasselkukförhud: Sloppy Gazelle-Foreskin
+- Äckliga sönderknullade fucking fitthora med läderfejs: Disgusting Fucked until Broken Fucking Cunt-Whore with a Leather-Face
+
 
 ## Spanish
 - Capullo: Jerk
