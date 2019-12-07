@@ -9,6 +9,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Kurwa do pici: (litteral: That bitch is a prostitute) Turbo Fuck Off. Generally used to show that you are member of the finest society and the alpha male of the pack
 - Buzne: Faggot
 - Tepla: Lesbian
+- Čůrak: Dick / Dickhead / Son of a bitch
 
 ## Dutch
 - Kanker: (You are a) Cancer
