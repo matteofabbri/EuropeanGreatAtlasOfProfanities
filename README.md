@@ -130,7 +130,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Poutana: Whore
 - Poutanas Gie / Πουτάνας γιε: Son of a whore
 - To mouni tis manas sou: The pussy of your mother
-- To mouni pou se petage: The pussy that threw you out
+- To mouni pou se petage:  I fuck the pussy that had thrown you (into existence)t
 - Fae skata: Eat shit
 - Gamo to spiti sou: Fuck your house
 - Θα μου κλάσεις τα αρχίδια: You will fart my balls (!Need translitteration)
