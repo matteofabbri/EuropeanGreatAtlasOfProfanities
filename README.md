@@ -134,6 +134,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Pute / Salope: Bitch
 - Va te faire enculer / Va te faire foutre: Go fuck yourself
 - Mange tes morts: Eat your dead relatives
+- Rital: Slur for Italians
 
 ## Norway
 - Faen / Fanden: Fuck
