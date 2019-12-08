@@ -235,6 +235,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Robić loda: Give a blowjob (*litteral: make ice cream*)
 - Ja pierdole: Fuck (*litteral: I'm fucking*)
 - Pedał: Faggot
+- Gówno: Shit
 
 ## Romania
 - Such pula: Suck my dick
