@@ -91,6 +91,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 
 ## Denmark
 - Fanden: Fuck
+- Ej forhedvede: Bloody hell
 
 ## Finland
 - Perkele: Fuck
@@ -114,6 +115,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Bulle: Cop	
 - Bumsen: To fuck	
 - Das ist mir furzegal / Das ist mir scheißegal: I don't give a fuck!
+- Hurensohn: Son of a whore
 
 ## Netherlands
 - Achterlijk: Retarded
@@ -263,6 +265,9 @@ Building a guide for swearwords, profanities and insults in every language of Th
 
 ## Serbia:
 - Pusi mi kurac: Suck my dick
+
+## Slovakia
+To je pičovina jak voda v koši: That's bullshit like a water in a bin
 
 ## Sweden
 - Fan: Fuck
