@@ -56,6 +56,24 @@ Building a guide for swearwords, profanities and insults in every language of Th
 
 ## Croatia
 - Jebalo te krdo divljih Isusa: Get fucked by a herd of a wild Jesuses.
+- Jebo ti isus mater krvavu: Jesus fucked your bloody mother.
+- Jebo ti pas mater: Dog fucked your mother.
+- Ovo je u kurcu: This is all fucked / shitty (*Litteral: This is in dick.*)
+- Jebali ti crnci mater: Black people fucked your mother.
+- Jeba ti pas mater - dog fucks your mother
+- Jebem ti sve po spisku - I fuck your whole list
+- Vrag ti sriću odnija - devil took your luck
+- Kurac od ovce - sheeps dick
+- Jebe u zdrav mozak - (he) fucks in sane brains
+- Mrš u tri pičke materine - be gone in three pussies of mother
+- Jebem ti mrtvu mater na križu: I fuck your dead mother on a cross.
+- Jebote: Fuck
+- Jebemti: Fuck it
+- Kurac / Pimpek: Dick
+- Puši kurac- Suck dick
+- Puši / Popuši mi kurac- Suck my dick
+- Šupak: Ass / Asshole
+- Govno / Drek: Shit
 
 
 ## Cechia
