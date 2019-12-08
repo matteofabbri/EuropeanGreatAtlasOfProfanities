@@ -151,6 +151,8 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Patsolas / Πατσόλας: Fat fuck (similar to Koloxontros)
  
 ## Iceland
+- Helvítis djöfulsins andskotans fuckin þurrkuntumella: Hell’s devil’s devil’s “fuckin” dry-cunt-hooker 
+    - (devil is twice because the two adjacent words have the same meaning).
 - Durtur: Churl / Someone who is mean and uncivilised / Gob;in
 - Ansans / Andskotinn: Devil (*literally: the one who shoots against you*)(WTF ?!?) 
 - Drullusokkur: Mud / Shit / Diarrhea / Sock
