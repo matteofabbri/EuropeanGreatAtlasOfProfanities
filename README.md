@@ -180,6 +180,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Cara de cu: Assface
 - Cara de cu à paisana = Lit
 - Grunho = dipshit
+- Paspalho: Dickhead / Useless / Dumb / Imbecile    
     
 ## Poland
 - Cipa: Cunt
