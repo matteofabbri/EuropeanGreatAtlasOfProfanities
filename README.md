@@ -240,8 +240,23 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Gówno: Shit
 
 ## Romania
-- Such pula: Suck my dick
-- Futute'n Cur: Fuck yourself in the ass
+- Să-mi sugi pula: Suck my dick
+- Futu-te-n cur: Fuck you in the ass
+- Du-te-n pizda mă-tii: Go in your mother's vagina
+- Hai sictir: Fuck off
+- Fu-tu-ți Paștele mă-tii: Fuck your mother's Easter
+- Să mă bei: drink me
+- Lua-mi-ai coaiele în gura: Take my balls in your mouth
+- Fu-tu-ți morții și răniții mă-tii: Fuck your mother's dead and injured
+- Fu-tu-ți parastasul mă-tii: Fuck your mother's funeral
+- Curvă: Bitch
+- Pulă: Dick
+- Pizda: Vagina
+- Lindic: Clitoris
+- Să te fut în dinți: Fuck you în the teeth
+- Fu-tu-ți gura mă-tii: Fuck your mother's mouth
+- Fută-te Dumnniezo: God may fuck you
+
 
 ## Serbia:
 - Pusi mi kurac: Suck my dick
