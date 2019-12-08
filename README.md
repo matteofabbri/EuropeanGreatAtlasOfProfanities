@@ -30,6 +30,11 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Shkërdhat: Faggot / Idiot
 - Tqisha dekt nvorr: Fuck your dead relatives in their grave
 
+## Belgium
+- Kwal: Cuny (*littearal: Jellyfish*)
+- Zak:Ballsack
+- Viswijf: Loudy bitch (*littearal: A woman who sells fish*)
+
 ## Bulgaria
 - Lapai mi huia, Duhai mi: Suck my dick	
 - Bit pederast / Pederuga: Faggot
