@@ -53,6 +53,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Kopele: Dickhead
 - Kuchka: Bitch
 - Shibai se: Fuck yourself
+- Ебал съм ти майката жабарска: I fucked your frog mother (!Translitteration needed)
 
 ## Croatia
 - Jebalo te krdo divljih Isusa: Get fucked by a herd of a wild Jesuses.
