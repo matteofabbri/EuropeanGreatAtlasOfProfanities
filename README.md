@@ -117,6 +117,8 @@ Building a guide for swearwords, profanities and insults in every language of Th
 
 ## Norway
 - Faen / Fanden: Fuck
+- Hestkuk: Horse cock
+- Sjøge = cunt
 
 ## Greece
 - Malakas / Μαλάκας: Jerk / Asshole / Wanker
