@@ -84,6 +84,15 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Stinkstifel: Redneck  (*litteral: stinky feet*)
 - Erbenzähler / Ameisentätowierer: Autistic
 - Heißluftgebläse: Chatterbox (*litteral: (Please) eat a gun*)
+- Arschfotze:	Ass- Cunt	
+- Arschgeige:	Dickhead 
+- Arschgesicht:Assface 
+- Arschloch:	Asshole	
+- Bloede Kuh / Blvde Fotze: Fucking Cunt
+- Blvdes Arschloch	stupid asshole	
+- Bulle: Cop	
+- Bumsen: To fuck	
+- Das ist mir furzegal / Das ist mir scheißegal: I don't give a fuck!
 
 ## Netherlands
 - Achterlijk: Retarded
