@@ -76,6 +76,9 @@ Building a guide for swearwords, profanities and insults in every language of Th
 
 ## Finland
 - Perkele: Fuck
+- Vittuç Cunt
+- Skeidaç Shit
+- Huoraç Whore
 
 ## Germany
 - Arschgeige: Faggot (*litteral: play violin with his ass*)
