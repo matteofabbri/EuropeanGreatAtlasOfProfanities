@@ -44,6 +44,10 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Kuchka: Bitch
 - Shibai se: Fuck yourself
 
+## Croatia
+- Jebalo te krdo divljih Isusa: Get fucked by a herd of a wild Jesuses.
+
+
 ## Cechia
 - Prdel: Ass
 - Prdele <Subject>: That/Those fucking <subject> (*"Ty prdele cesky"* - *"Those fucking czechs"*)
