@@ -62,7 +62,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Prdel: Ass
 - Prdele <Subject>: That/Those fucking <subject> (*"Ty prdele cesky"* - *"Those fucking czechs"*)
 - Kurwa: Whore
-- Tivole: Fuck you (*also: Good Morning / Good Nigth / Hello / Yes / No / Maybe / Punctuation sign*)
+- Tivole: Fuck you (*also: anywhere is there is space for that *)
 - Kurwa do pici: (litteral: *That bitch is a prostitute*) Turbo Fuck Off
     - Generally used to show that you are member of the finest society and the alpha male of the pack
 - Buzne: Faggot
@@ -189,13 +189,10 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Succhiamelo / Succhiami il cazzo / Suca / Puppa / Ciccamelo : Suck my dick
 - Baciamelo: Kiss it ( my dick )
 - Dio <List of animals and/or adjectives>: God is a <List of animals and/or adjectives>.
-  - Social recognition is awarded for most complex and creative combinations.
   - Most common use: Dio Porco ( God is a pig )
 - Gesu <List of animals and/or adjectives>: Jesus is a <List of animals and/or adjectives>.
-    - Social recognition is awarded for most complex and creative combinations.
     - Most common use: Gesu Porco ( God is a pig )
 - Madonna <List of animals and/or adjectives>: Holy Mary is a <List of animals and/or adjectives>.
-    - Social recognition is awarded for most complex and creative combinations.
     - Most common use: Madonna Maiala ( Holy Mary is a pig )
 - Mangia merda: Eat shit
 - Figlio di troia: Son of a bitch
