@@ -30,6 +30,19 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Shkërdhat: Faggot / Idiot
 - Tqisha dekt nvorr: Fuck your dead relatives in their grave
 
+## Bulgaria
+- Lapai mi huia, Duhai mi: Suck my dick	
+- Bit pederast / Pederuga: Faggot
+- Cheren pedal: Nigger faggot
+- Chickidjya / Chikidziq: Wanker
+- Ciganin da te ebe: Be fucked by a gipsy
+- Coochka: Bitch
+- Mamka mu': Fuck
+- Da te eba v guza: Fuck you in the ass
+- Da ti eba maikata: I Fuck your mother	
+- Kopele: Dickhead
+- Kuchka: Bitch
+- Shibai se: Fuck yourself
 
 ## Cechia
 - Prdel: Ass
