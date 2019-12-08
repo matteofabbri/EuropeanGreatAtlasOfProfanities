@@ -228,7 +228,8 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Paspalho: Dickhead / Useless / Dumb / Imbecile    
     
 ## Poland
-- Cipa: Cunt
+- Kurwa: Whore
+- Dziwka / Cipa: Cunt
 - Chuj / Kutas: Dick
 - Dziwka: Whore
 - Certolić się / Pieprzyć / Pierdolić: Fuck
