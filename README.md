@@ -29,6 +29,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Ta qi nonen ne varp: I will fuck your mom in her grave.
 - Shkërdhat: Faggot / Idiot
 - Tqisha dekt nvorr: Fuck your dead relatives in their grave
+- Tqifshin zezakt motren: Let the niggas hardfuck your sister
 
 ## Belgium
 - Kwal: Cuny (*littearal: Jellyfish*)
@@ -93,6 +94,25 @@ Building a guide for swearwords, profanities and insults in every language of Th
 ## Denmark
 - Fanden: Fuck
 - Ej forhedvede: Bloody hell
+- Røvbanan: Motherfucker
+- Pikansjos: Dickhead
+- Bidesild: Beetles
+- Bløddyr: Mollusks
+- Bollefjæs: Bollards
+- Fedtefyre: Fatty guys
+- Hundehoveder: Dog heads
+- Feje hundehoveder: Sweep dog heads
+- Fnatmider: Scabies
+- Fæhoveder: Moths
+- Grødbønder: Porcupines
+- Hængerøve: Hangovers
+- Ignoranter: Ignorants
+- Jammerkommoder: Junk dressers
+- Karklud: Dishcloths
+- Elendige: Miserable squatters
+- Klamhuggere: Batsmen
+- Klodsmajor: Lice-breathers
+- Lusepustere: Scavengers
 
 ## Finland
 - Perkele: Fuck
