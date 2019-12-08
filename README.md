@@ -108,6 +108,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Bitch: Bitch
 - Dikzak: Fat bag
 - Drol: Turd
+- Vuile rot mof: Fucking German
     
 ## France
 - Enculer: Fuck (*literally: fuck in the ass*)
