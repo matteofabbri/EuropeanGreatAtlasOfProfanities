@@ -28,6 +28,8 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Per ty nena edhe halla jan nje njeri: I your mom and aunt are the same person.
 - Ta qi nonen ne varp: I will fuck your mom in her grave.
 - Shkërdhat: Faggot / Idiot
+- Tqisha dekt nvorr: Fuck your dead relatives in their grave
+
 
 ## Cechia
 - Prdel: Ass
