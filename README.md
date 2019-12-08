@@ -34,6 +34,11 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Kwal: Cuny (*littearal: Jellyfish*)
 - Zak:Ballsack
 - Viswijf: Loudy bitch (*littearal: A woman who sells fish*)
+- Kut: Cunt
+- Klootzak: Asshole
+- Paljas: Jerk
+- Makak / Voale zwetzak: Nigger
+
 
 ## Bulgaria
 - Lapai mi huia, Duhai mi: Suck my dick	
