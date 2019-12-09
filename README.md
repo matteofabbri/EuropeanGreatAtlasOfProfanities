@@ -116,9 +116,9 @@ Building a guide for swearwords, profanities and insults in every language of Th
 
 ## Finland
 - Perkele: Fuck
-- Vittuç Cunt
-- Skeidaç Shit
-- Huoraç Whore
+- Vittuç: Cunt
+- Skeidaç: Shit
+- Huoraç: Whore
 
 ## Germany
 - Arschgeige: Faggot (*litteral: play violin with his ass*)
@@ -183,7 +183,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 ## Norway
 - Faen / Fanden: Fuck
 - Hestkuk: Horse cock
-- Sjøge = cunt
+- Sjøge: cunt
 
 ## Greece
 - Malakas / Μαλάκας: Jerk / Asshole / Wanker
@@ -335,7 +335,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Pusi mi kurac: Suck my dick
 
 ## Slovakia
-To je pičovina jak voda v koši: That's bullshit like a water in a bin
+- To je pičovina jak voda v koši: That's bullshit like a water in a bin
 
 ## Sweden
 - Fan: Fuck
