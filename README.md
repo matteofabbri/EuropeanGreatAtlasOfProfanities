@@ -123,6 +123,7 @@ Every contribution is welcome :)
 - Klamhuggere: Batsmen
 - Klodsmajor: Lice-breathers
 - Lusepustere: Scavengers
+- Sut din mors pik mand: Suck the dick of your mom
 
 ## Finland
 - Perkele: Fuck
