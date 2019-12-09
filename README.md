@@ -247,6 +247,9 @@ Every contribution is welcome :)
 - Vörtuböllur: Vörtuböllur 
 - Skrattinn sjálfur: the devil himself
 - Skíthæll: A shitty person (*litteral: Shit heel*)
+- Helvítis/helvískur : Hellish
+- Náriðill : Corpse fucker
+- Afa rúnkari : Grandpa wanker
 
 ## Italy
 - Figa: Cunt. Can be also used as space between phrases.
@@ -276,7 +279,7 @@ Insults in Portugal are all about the tone of your voice. European Portuguese re
 - Paneleiro / Bicha / Viado: Faggot
 - Puta: Bicth
 - Sapatao / Sapatona: Lesbian
-- Mouro: Nigger
+- Mouro: Redneck
 - Filho da puta: Son of a bitch
 - Vai-te foder: Fuck you
 - Vai pró caralho: Fuck you
