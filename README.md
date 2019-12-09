@@ -286,7 +286,12 @@ Insults in Portugal are all about the tone of your voice. European Portuguese re
    - You say this one as an exclamation when you see someone who's really really ugly - face, body, mind and soul -, in a genetic disaster kind of way.
 - Comes merda às colheres tu: You eat spoonfuls of shit
 - Morre longe. = Die far away
-    
+- Era quem te fosse ao cu e não pagasse: You should get buttfucked and not get paid for it.
+- A tua mãe só gosta de ti como amigo: Your mother only likes you as a friend
+- Amor à pátria: Guy who is a butterface
+
+Vai-te foder com um pinheiro atravessado no cu = Go fuck yourself with a pine tree up your bum
+
 ## Poland
 - Kurwa: Whore
 - Dziwka / Cipa: Cunt
@@ -327,6 +332,7 @@ Insults in Portugal are all about the tone of your voice. European Portuguese re
 - La pulivara: Next fucking sprint (*litteral: Penis-spring*)
 - Lindic: Clitoris
 - Lua-mi-ai coaiele în gura: Take my balls in your mouth
+- Lua-ti-as mortii in pula: I'd stick my dick in your dead ones.
 - Ma doare-n pula: I'm super relaxed (*litteral: My dick hurts*)
 - Ma fac pula: Im getting drunk (*litteral: I'm becoming a dick*)
 - Mai ste pula: I completly forgot (*litteral: Only the dick knows*)
