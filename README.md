@@ -92,6 +92,7 @@ Every contribution is welcome :)
 - Vukojebina: A fucking place (shitty location)
 - Dao Bog da ti izraste kurac na čelu: I hope for god to grow a dick on your forehead
 - Bog te jeba: God fuck you
+- Drekić: Poopies
 
 ## Cechia
 - Prdel: Ass
