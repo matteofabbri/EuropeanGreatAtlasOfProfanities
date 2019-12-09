@@ -77,6 +77,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Puši / Popuši mi kurac- Suck my dick
 - Šupak: Ass / Asshole
 - Govno / Drek: Shit
+- Jebo ti konj mater: Horse fucked your mother
 
 
 ## Cechia
