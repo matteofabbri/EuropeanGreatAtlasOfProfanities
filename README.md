@@ -104,6 +104,7 @@ Every contribution is welcome :)
 ## Denmark
 - Fanden: Fuck
 - Ej forhedvede: Bloody hell
+- Båtnak: Dumbass
 - Røvbanan: Motherfucker
 - Pikansjos: Dickhead
 - Bidesild: Beetles
