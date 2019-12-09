@@ -91,6 +91,7 @@ Every contribution is welcome :)
 - Poserem ti se na popišani grob: I shit on your pissed grave
 - Vukojebina: A fucking place (shitty location)
 - Dao Bog da ti izraste kurac na čelu: I hope for god to grow a dick on your forehead
+- Bog te jeba: God fuck you
 
 ## Cechia
 - Prdel: Ass
