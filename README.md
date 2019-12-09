@@ -55,6 +55,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Kuchka: Bitch
 - Shibai se: Fuck yourself
 - Ебал съм ти майката жабарска: I fucked your frog mother (!Translitteration needed)
+- Da ti eba maikata, pederast nedoaten: Fuck your mother, malnourished pederast
 
 ## Croatia
 - Jebalo te krdo divljih Isusa: Get fucked by a herd of a wild Jesuses.
@@ -90,6 +91,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Čůrak / Zmrd: Dick / Dickhead / Son of a bitch
 - Baba: Old bicth
 - Zkurvysyn: Son of a bitch
+- Jebat: Fuck
 
 ## Denmark
 - Fanden: Fuck
@@ -214,6 +216,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Poutsoglifits / Πουτσογλίφτης: cock licker
 - Mikropsolis / Μικροψώλης: A man with a tiny dick
 - Patsolas / Πατσόλας: Fat fuck (similar to Koloxontros)
+- Gamo ta pethamena soy: I fuck your dead loved ones
  
 ## Iceland
 - Helvítis djöfulsins andskotans fuckin þurrkuntumella: Hell’s devil’s devil’s “fuckin” dry-cunt-hooker 
@@ -222,7 +225,12 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Ansans / Andskotinn: Devil (*literally: the one who shoots against you*)(WTF ?!?) 
 - Drullusokkur: Mud / Shit / Diarrhea / Sock
 - Tussa / Drusla: cunt
-  
+- Skítseiði: Scum / Shitpot / Filth
+- Mörður: Name of a back-stabbing slimy scoundrel from their stories who was so infamous that his very name became an insult.
+- Vörtuböllur: Vörtuböllur 
+- Skrattinn sjálfur: the devil himself
+- Skíthæll: A shitty person (*litteral: Shit heel*)
+
 ## Italy
 - Figa: Cunt. Can be also used as space between phrases.
 - Cazzo: Dick. Can be also used as space between phrases.
@@ -244,6 +252,8 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Faccia da cazzo: (*litteral: Dick like face*) Moron
 
 ## Portugal
+Insults in Portugal are all about the tone of your voice. European Portuguese really lends itself well to sarcasm, spite, disdain and contempt/scorn. Insults hurt more when you're having fun with them and with how fulfilled you seem when speaking them. So you can add ", caralho" or ", foda-se" at the end of any insult just to reinforce those beautiful feelings. Growl those words between your teeth like a rabid junkie.
+
 - Merda: Shit
 - Cona: Cunt
 - Paneleiro / Bicha / Viado: Faggot
@@ -266,7 +276,16 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Cara de cu: Assface
 - Cara de cu à paisana = Lit
 - Grunho = dipshit
-- Paspalho: Dickhead / Useless / Dumb / Imbecile    
+- Paspalho: Dickhead / Useless / Dumb / Imbecile
+- Vai pra puta que te pariu: Go to the whore who birthed you.
+    - You say this one when you want someone to fuck right off, and you let them know that while insulting their mother because why not.
+- Mete-te nas putas: Go meet whores.
+- Porca do caralho. = Dick pig.da
+    - You say this one to the skankiest whore you know. Bonus points if she's fat and shaped like a barrel. Actually you can also tell her "pareces um barril" (you look like a barrel).
+- Ca ganda aborto / Que grande aborto: What a big abortion
+   - You say this one as an exclamation when you see someone who's really really ugly - face, body, mind and soul -, in a genetic disaster kind of way.
+- Comes merda às colheres tu: You eat spoonfuls of shit
+- Morre longe. = Die far away
     
 ## Poland
 - Kurwa: Whore
