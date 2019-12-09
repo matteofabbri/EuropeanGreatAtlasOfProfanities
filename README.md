@@ -78,7 +78,12 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Šupak: Ass / Asshole
 - Govno / Drek: Shit
 - Jebo ti konj mater: Horse fucked your mother
-
+- Otac te jebo u glavu glupavu: Your father fuck you in your stupid head
+- Jebem te mudima paukovim: I fuck you with the balls of a spider
+- Jebem te u usta lijepa: I fuck you in your pretty mouth
+- Jebem te u rupu od minđuše: I fuck you through the hole of you earring
+- These are just off the top o my head I got more brewing in there but can't be bothered to type.
+- Lako je tuđim kurcem koprive mlatit: It's easy to beat nettles with another man's dick
 
 ## Cechia
 - Prdel: Ass
