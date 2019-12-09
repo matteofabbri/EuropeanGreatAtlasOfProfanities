@@ -201,7 +201,8 @@ Every contribution is welcome :)
 ## Norway
 - Faen / Fanden: Fuck
 - Hestkuk: Horse cock
-- Sjøge: cunt
+- Sjøge: Cunt
+- Hæstkuk: Horses cock
 
 ## Greece
 - Malakas / Μαλάκας: Jerk / Asshole / Wanker
