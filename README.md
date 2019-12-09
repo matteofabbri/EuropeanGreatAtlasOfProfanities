@@ -60,6 +60,8 @@ Every contribution is welcome :)
 - Da ti eba maikata, pederast nedoaten: Fuck your mother, malnourished pederast
 
 ## Croatia
+- Jebem ti krv Isusovu Translation: I fuck you a christ's blood.
+- Jebo te bog: God fucked you
 - Jebalo te krdo divljih Isusa: Get fucked by a herd of a wild Jesuses.
 - Jebo ti isus mater krvavu: Jesus fucked your bloody mother.
 - Jebo ti pas mater: Dog fucked your mother.
