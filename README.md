@@ -29,6 +29,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Ta qi nonen ne varp: I will fuck your mom in her grave.
 - Shkërdhat: Faggot / Idiot
 - Tqisha dekt nvorr: Fuck your dead relatives in their grave
+- Tqifshin zezakt motren: Let the niggas hardfuck your sister
 
 ## Belgium
 - Kwal: Cuny (*littearal: Jellyfish*)
@@ -53,9 +54,28 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Kopele: Dickhead
 - Kuchka: Bitch
 - Shibai se: Fuck yourself
+- Ебал съм ти майката жабарска: I fucked your frog mother (!Translitteration needed)
 
 ## Croatia
 - Jebalo te krdo divljih Isusa: Get fucked by a herd of a wild Jesuses.
+- Jebo ti isus mater krvavu: Jesus fucked your bloody mother.
+- Jebo ti pas mater: Dog fucked your mother.
+- Ovo je u kurcu: This is all fucked / shitty (*Litteral: This is in dick.*)
+- Jebali ti crnci mater: Black people fucked your mother.
+- Jeba ti pas mater - dog fucks your mother
+- Jebem ti sve po spisku - I fuck your whole list
+- Vrag ti sriću odnija - devil took your luck
+- Kurac od ovce - sheeps dick
+- Jebe u zdrav mozak - (he) fucks in sane brains
+- Mrš u tri pičke materine - be gone in three pussies of mother
+- Jebem ti mrtvu mater na križu: I fuck your dead mother on a cross.
+- Jebote: Fuck
+- Jebemti: Fuck it
+- Kurac / Pimpek: Dick
+- Puši kurac- Suck dick
+- Puši / Popuši mi kurac- Suck my dick
+- Šupak: Ass / Asshole
+- Govno / Drek: Shit
 
 
 ## Cechia
@@ -73,6 +93,26 @@ Building a guide for swearwords, profanities and insults in every language of Th
 
 ## Denmark
 - Fanden: Fuck
+- Ej forhedvede: Bloody hell
+- Røvbanan: Motherfucker
+- Pikansjos: Dickhead
+- Bidesild: Beetles
+- Bløddyr: Mollusks
+- Bollefjæs: Bollards
+- Fedtefyre: Fatty guys
+- Hundehoveder: Dog heads
+- Feje hundehoveder: Sweep dog heads
+- Fnatmider: Scabies
+- Fæhoveder: Moths
+- Grødbønder: Porcupines
+- Hængerøve: Hangovers
+- Ignoranter: Ignorants
+- Jammerkommoder: Junk dressers
+- Karklud: Dishcloths
+- Elendige: Miserable squatters
+- Klamhuggere: Batsmen
+- Klodsmajor: Lice-breathers
+- Lusepustere: Scavengers
 
 ## Finland
 - Perkele: Fuck
@@ -96,6 +136,7 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Bulle: Cop	
 - Bumsen: To fuck	
 - Das ist mir furzegal / Das ist mir scheißegal: I don't give a fuck!
+- Hurensohn: Son of a whore
 
 ## Netherlands
 - Achterlijk: Retarded
@@ -240,26 +281,61 @@ Building a guide for swearwords, profanities and insults in every language of Th
 - Gówno: Shit
 
 ## Romania
-- Să-mi sugi pula: Suck my dick
-- Futu-te-n cur: Fuck you in the ass
+- Am belit pula: We are fucked (*litteral: We have flayed the penis*)
+- Bag pula: I shall now quit what I was doing (*litteral: I insert my penis !*)
+- Baga-mi-as pula:  I have just made a mistake (*litteral: I'd insert my penis)
+- Bai pula: Listen here, you piece of shit (*litteral: Hey, dick*)
+- Ca Pula: That's incorrect (*litteral: Like a dick*)
+- Ce Pula Mea ?: What the Fuck (*litteral: What my penis ?*)
+- Ce-are pula ca prefectura ?: You are comparing apples and oranges (*litteral:What the dick have to do with the prefect's office ?*)
+- Curvă: Bitch
+- De pula sa ma treci strada: Just because (*litteral: So you can hold me by the dick in order to help me cross the road*)
 - Du-te-n pizda mă-tii: Go in your mother's vagina
-- Hai sictir: Fuck off
-- Fu-tu-ți Paștele mă-tii: Fuck your mother's Easter
-- Să mă bei: drink me
-- Lua-mi-ai coaiele în gura: Take my balls in your mouth
+- Du-te-n pula me: Fuck off (*litteral: Get out of my dick*)
+- Du-te-n pula mea de aici: I can not believe my own eye (*litteral: My eyes are going to my dick*)
+- Ete pula: No way (*litteral: Behold the dick*)
+- Facuta in ciuda pulii: Nice girl (*litteral: Made to spite the penis*)
+- Fix pula: Our attempt was futile (*litteral: Exaclty, the dick*)
+- Fută-te Dumnniezo: God may Fuck you
+- Futu-te-n cur: Fuck you in the ass
+- Fu-tu-ți gura mă-tii: Fuck your mother's mouth
 - Fu-tu-ți morții și răniții mă-tii: Fuck your mother's dead and injured
 - Fu-tu-ți parastasul mă-tii: Fuck your mother's funeral
-- Curvă: Bitch
-- Pulă: Dick
-- Pizda: Vagina
+- Fu-tu-ți Paștele mă-tii: Fuck your mother's Easter
+- Hai sictir: Fuck off
+- In pula cu satelitul: Very far away (*litteral: On the dick of satellites*)
+- In pula mea: I screwed up (*litteral: In my dick*)
+- La pulivara: Next fucking sprint (*litteral: Penis-spring*)
 - Lindic: Clitoris
+- Lua-mi-ai coaiele în gura: Take my balls in your mouth
+- Ma doare-n pula: I'm super relaxed (*litteral: My dick hurts*)
+- Ma fac pula: Im getting drunk (*litteral: I'm becoming a dick*)
+- Mai ste pula: I completly forgot (*litteral: Only the dick knows*)
+- Mi se rupe pula: I'm overwelgimg relaxed (*litteral: My dick is breaking*)
+- Mica-mi-ai pula: Suck my Dick
+- Mica-ti-as pula: My dear friend (*litteral: I have to suck your dick*)
+- O pula de om: Asshole (*litteral: Not a man, a dick*)
+- Pe pula lui: Lucky him (*litteral: On his own penis*)
+- Pielea puli: Poor as fuck (*litteral: foreskin*)
+- pizda: Vagina
+- Pula Mea: I don't know (*litteral: My penis !*)
+- Pula nu stie carte: Love is blind (*litteral: The dick doesnt know how to read*)
+- Pulă: Dick
+- S-a dus pe pula: Fucked up beyond any recognition (*litteral: It went on top of a dick*)
+- Să mă bei: drink me
 - Să te fut în dinți: Fuck you în the teeth
-- Fu-tu-ți gura mă-tii: Fuck your mother's mouth
-- Fută-te Dumnniezo: God may fuck you
-
+- Sa-mi bag pula: Wow ! (*litteral: May I insert my penis*)
+- Să-mi sugi pula: Suck my Dick
+- Si-a Bagat pula: He was rather negligentt at this job (*litteral: He inserted his penis !*)
+- The bati pula de mine ?: Are you fucking joking me ? (*litteral: Are you beting me with your dick ?*)
+- Un pularau: Ladys male companion (*litteral:Some sort of penis creature*)
+- Futi, nu Futi vremea pulii trece: No matter if you Fuck or not, the time of dick quickly passes.
 
 ## Serbia:
 - Pusi mi kurac: Suck my dick
+
+## Slovakia
+To je pičovina jak voda v koši: That's bullshit like a water in a bin
 
 ## Sweden
 - Fan: Fuck
