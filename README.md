@@ -310,6 +310,7 @@ Insults in Portugal are all about the tone of your voice. European Portuguese re
 - Era quem te fosse ao cu e não pagasse: You should get buttfucked and not get paid for it.
 - A tua mãe só gosta de ti como amigo: Your mother only likes you as a friend
 - Amor à pátria: Guy who is a butterface
+- Monte de merda: Pile of shit
 
 Vai-te foder com um pinheiro atravessado no cu = Go fuck yourself with a pine tree up your bum
 
