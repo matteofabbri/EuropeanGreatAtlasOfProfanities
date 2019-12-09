@@ -1,6 +1,8 @@
 # European Great Atlas Of Profanities
 Building a guide for swearwords, profanities and insults in every language of The Continent
 
+Every contribution is welcome :)
+
 ## Albania
 - Te qifsha: Fuck you
 - Ha Mut: Eat shit
