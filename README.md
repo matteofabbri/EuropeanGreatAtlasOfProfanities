@@ -88,6 +88,9 @@ Every contribution is welcome :)
 - Jebem te u rupu od minđuše: I fuck you through the hole of you earring
 - These are just off the top o my head I got more brewing in there but can't be bothered to type.
 - Lako je tuđim kurcem koprive mlatit: It's easy to beat nettles with another man's dick
+- Poserem ti se na popišani grob: I shit on your pissed grave
+- Vukojebina: A fucking place (shitty location)
+- Dao Bog da ti izraste kurac na čelu: I hope for god to grow a dick on your forehead
 
 ## Cechia
 - Prdel: Ass
