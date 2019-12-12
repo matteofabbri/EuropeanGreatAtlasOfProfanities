@@ -152,49 +152,6 @@ Every contribution is welcome :)
 - Skeidaç: Shit
 - Huoraç: Whore
 
-## Germany
-- Arschgeige: Faggot (*litteral: play violin with his ass*)
-- Bananenbieger: Faggot (*litteral: bends with his ass*)
-- Arsch mit ohren: Moron (*litteral: butt with ears*)
-- Stinkstifel: Redneck  (*litteral: stinky feet*)
-- Erbenzähler / Ameisentätowierer: Autistic
-- Heißluftgebläse: Chatterbox (*litteral: (Please) eat a gun*)
-- Arschfotze:	Ass- Cunt	
-- Arschgeige:	Dickhead 
-- Arschgesicht:Assface 
-- Arschloch:	Asshole	
-- Bloede Kuh / Blvde Fotze: Fucking Cunt
-- Blvdes Arschloch	stupid asshole	
-- Bulle: Cop	
-- Bumsen: To fuck	
-- Das ist mir furzegal / Das ist mir scheißegal: I don't give a fuck!
-- Hurensohn: Son of a whore
-
-## Netherlands
-- Achterlijk: Retarded
-- Autist: Autistic
-- Debiel: Handicapped
-- Downie / Mongool: With Down Syndrom
-- Kanker: (*You are a*) Cancer
-- Krijg de kanker: Get the cancer
-- Kankeren: To bitch (*literally: to cancer*)
-- Klere: (I hope you take) Cholera
-- Minkukel: Retarded
-- Pleurislijer / Tering / Teringlijer: (I hope you take) Tuberculosis
-- Polio: You had been retarded by Poliomyelitis
-- Pokke: (I hope you take) Smallpox
-- Stom: Retarded
-- Takke:(*You look retarded as you had a*) Stroke
-- Tyfus: (I hope you take) Typhoid fever
-- Vinkentering: (I hope you take) Finch tuberculosis
-- Godverdomme <The Target>: May god dam <The Target>
-- Anaalgeneraal: Hyper mega faggot 
-- Anusridder: Faggot
-- Bitch: Bitch
-- Dikzak: Fat bag
-- Drol: Turd
-- Vuile rot mof: Fucking German
-    
 ## France
 - Enculer: Fuck (*literally: fuck in the ass*)
 - Enculé: Asshole (*litterally: that as been fucked in the ass*)
@@ -214,14 +171,8 @@ Every contribution is welcome :)
 - Va te faire enculer / Va te faire foutre: Go fuck yourself
 - Mange tes morts: Eat your dead relatives
 - Rital: Slur for Italians
-### If you want to show off
 - Nique sa mère la pute en string de guerre qui suce des pipes: Oh fuck (*literally: Fuck his/her mom, who is wearing a war G-String while sucking dicks*). Yes. Frenchies like to flex their insults :D
 
-## Norway
-- Faen / Fanden: Fuck
-- Hestkuk: Horse cock
-- Sjøge: Cunt
-- Hæstkuk: Horses cock
 
 ## Greece
 - Malakas / Μαλάκας: Jerk / Asshole / Wanker
@@ -255,6 +206,36 @@ Every contribution is welcome :)
 - Gamo ta pethamena soy: I fuck your dead loved ones
  
  ## Hungary 
+- Bazdmeg : short for basszad meg, literally means fuck that, generally used for fuck you and fuck or shit as an exclamation
+- Kurva : means whore or bitch, can be combined with a lot a words, similar to fucking in English
+- Kurva anyád : an often used combination, literally means your mother is a bitch, but used for fuck you
+- Geci : literally means jizz or cum, generally used to say of a person, means something like dick or jerk. Quite often used to refer to Viktor Orbán
+- Gecc : shortened form of geci, used for emphasis at the end of a sentence, imagine the Jesse Pinkman bitch
+- Szar : crap or shit
+- Fos : literally diarrhea, but a stronger version of szar
+- Fasz : dick
+- Faszkalap : literally dick hat, used referring to a person
+- Segg : arse
+- Lófasz : literally horse dick, generally used for bullshit
+- Picsa : cunt
+
+## Germany
+- Arschgeige: Faggot (*litteral: play violin with his ass*)
+- Bananenbieger: Faggot (*litteral: bends with his ass*)
+- Arsch mit ohren: Moron (*litteral: butt with ears*)
+- Stinkstifel: Redneck  (*litteral: stinky feet*)
+- Erbenzähler / Ameisentätowierer: Autistic
+- Heißluftgebläse: Chatterbox (*litteral: (Please) eat a gun*)
+- Arschfotze:	Ass- Cunt	
+- Arschgeige:	Dickhead 
+- Arschgesicht:Assface 
+- Arschloch:	Asshole	
+- Bloede Kuh / Blvde Fotze: Fucking Cunt
+- Blvdes Arschloch	stupid asshole	
+- Bulle: Cop	
+- Bumsen: To fuck	
+- Das ist mir furzegal / Das ist mir scheißegal: I don't give a fuck!
+- Hurensohn: Son of a whore
 
  
 ## Iceland
@@ -292,6 +273,39 @@ Every contribution is welcome :)
 - Figlio di troia: Son of a bitch
 - Vaffanculo / Vai a fare in culo: Go fuck yourself in the ass.
 - Faccia da cazzo: (*litteral: Dick like face*) Moron
+
+
+## Netherlands
+- Achterlijk: Retarded
+- Autist: Autistic
+- Debiel: Handicapped
+- Downie / Mongool: With Down Syndrom
+- Kanker: (*You are a*) Cancer
+- Krijg de kanker: Get the cancer
+- Kankeren: To bitch (*literally: to cancer*)
+- Klere: (I hope you take) Cholera
+- Minkukel: Retarded
+- Pleurislijer / Tering / Teringlijer: (I hope you take) Tuberculosis
+- Polio: You had been retarded by Poliomyelitis
+- Pokke: (I hope you take) Smallpox
+- Stom: Retarded
+- Takke:(*You look retarded as you had a*) Stroke
+- Tyfus: (I hope you take) Typhoid fever
+- Vinkentering: (I hope you take) Finch tuberculosis
+- Godverdomme <The Target>: May god dam <The Target>
+- Anaalgeneraal: Hyper mega faggot 
+- Anusridder: Faggot
+- Bitch: Bitch
+- Dikzak: Fat bag
+- Drol: Turd
+- Vuile rot mof: Fucking German
+    
+
+## Norway
+- Faen / Fanden: Fuck
+- Hestkuk: Horse cock
+- Sjøge: Cunt
+- Hæstkuk: Horses cock
 
 ## Portugal
 Insults in Portugal are all about the tone of your voice. European Portuguese really lends itself well to sarcasm, spite, disdain and contempt/scorn. Insults hurt more when you're having fun with them and with how fulfilled you seem when speaking them. So you can add ", caralho" or ", foda-se" at the end of any insult just to reinforce those beautiful feelings. Growl those words between your teeth like a rabid junkie.
