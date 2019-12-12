@@ -156,7 +156,6 @@ Every contribution is welcome :)
 - Enculer: Fuck (*literally: fuck in the ass*)
 - Enculé: Asshole (*litterally: that as been fucked in the ass*)
 - Merde: Shit
-- Va te faire foutre: Go fuck yourself
 - Abruti: Moron
 - Connard / Connasse: Cunt (for Males / for Females)
 - Tu me gonfles: You are pissing me off (*literally: you're inflating my balls*)
@@ -171,6 +170,7 @@ Every contribution is welcome :)
 - Va te faire enculer / Va te faire foutre: Go fuck yourself
 - Mange tes morts: Eat your dead relatives
 - Rital: Slur for Italians
+### If you want to show off
 - Nique sa mère la pute en string de guerre qui suce des pipes: Oh fuck (*literally: Fuck his/her mom, who is wearing a war G-String while sucking dicks*). Yes. Frenchies like to flex their insults :D
 
 
