@@ -254,6 +254,9 @@ Every contribution is welcome :)
 - Patsolas / Πατσόλας: Fat fuck (similar to Koloxontros)
 - Gamo ta pethamena soy: I fuck your dead loved ones
  
+ ## Hungary 
+
+ 
 ## Iceland
 - Helvítis djöfulsins andskotans fuckin þurrkuntumella: Hell’s devil’s devil’s “fuckin” dry-cunt-hooker 
     - (devil is twice because the two adjacent words have the same meaning).
