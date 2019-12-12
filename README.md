@@ -93,6 +93,19 @@ Every contribution is welcome :)
 - Dao Bog da ti izraste kurac na čelu: I hope for god to grow a dick on your forehead
 - Bog te jeba: God fuck you
 - Drekić: Poopies
+- Jebo te led : Ice fucks you
+- Jebem ti pjesak : I fuck sand to you
+- Jebem ti pasa : I fuck a dog to you
+- Jebo te ja : I fuck you
+- Jebalo te krdo divljih muhameda : I hope a pack of wild Muhammeds fuck you
+- Jebali te crnci : I hope for black people to fuck you
+- Jebem ti sve mrtvo : I fuck everyone dead (from your family)
+- Jebem ti tetu iz Novoga Sada : I fuck your aunt from Novi Sad (my neighbours favourite)
+- Jebem ti sunce : I fuck sun to you
+- Jebi se : go fuck yourself
+- Jebem ti Kneza Lazara : I fuck Despot Lazar
+- Jebem te sa govnom u usta : I fuck you with a shit in your mouth
+
 
 ## Cechia
 - Prdel: Ass
