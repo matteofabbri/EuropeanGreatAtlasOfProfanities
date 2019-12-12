@@ -218,6 +218,11 @@ Every contribution is welcome :)
 - Segg : arse
 - Lófasz : literally horse dick, generally used for bullshit
 - Picsa : cunt
+- Kurvaistenfaszát: The cock of a whore god
+- Az ördög szánkázzon a hátán: May the devil ride a sleigh on his back
+- Szarjál sünt!: May you shit a hedgehog.
+- Nőjön gitár a hasadba és pengesse a rák! : May a guitar grow in your belly and let the cancer play it.
+
 
 ## Germany
 - Arschgeige: Faggot (*litteral: play violin with his ass*)
