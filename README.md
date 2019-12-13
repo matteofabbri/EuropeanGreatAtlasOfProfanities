@@ -173,6 +173,23 @@ Every contribution is welcome :)
 ### If you want to show off
 - Nique sa mère la pute en string de guerre qui suce des pipes: Oh fuck (*literally: Fuck his/her mom, who is wearing a war G-String while sucking dicks*). Yes. Frenchies like to flex their insults :D
 
+## Germany
+- Arschgeige: Faggot (*litteral: play violin with his ass*)
+- Bananenbieger: Faggot (*litteral: bends with his ass*)
+- Arsch mit ohren: Moron (*litteral: butt with ears*)
+- Stinkstifel: Redneck  (*litteral: stinky feet*)
+- Erbenzähler / Ameisentätowierer: Autistic
+- Heißluftgebläse: Chatterbox (*litteral: (Please) eat a gun*)
+- Arschfotze:	Ass- Cunt	
+- Arschgeige:	Dickhead 
+- Arschgesicht:Assface 
+- Arschloch:	Asshole	
+- Bloede Kuh / Blvde Fotze: Fucking Cunt
+- Blvdes Arschloch	stupid asshole	
+- Bulle: Cop	
+- Bumsen: To fuck	
+- Das ist mir furzegal / Das ist mir scheißegal: I don't give a fuck!
+- Hurensohn: Son of a whore
 
 ## Greece
 - Malakas / Μαλάκας: Jerk / Asshole / Wanker
@@ -283,25 +300,6 @@ Every contribution is welcome :)
     - Ribanc: whore, a worst degree, this displays sexual actvity without regards to gender and taxomony (used for bestiality and necrophilia)
     - these are often paired with the following to make long insults or complex sentences: utolsó (last), faluvégi (villages end), mocskos koszos(dirty), szennyes (filthy), büdös (stinky) rühes (diseased).
         - Example sentence: Te utolsó, koszos büdös szuka, még az anyád is egy faluvégi szajha volt, te ribanc!: You last filthy, stinky bitch, even your mother was a prostitute from the village's end, you whore!)
-
-
-## Germany
-- Arschgeige: Faggot (*litteral: play violin with his ass*)
-- Bananenbieger: Faggot (*litteral: bends with his ass*)
-- Arsch mit ohren: Moron (*litteral: butt with ears*)
-- Stinkstifel: Redneck  (*litteral: stinky feet*)
-- Erbenzähler / Ameisentätowierer: Autistic
-- Heißluftgebläse: Chatterbox (*litteral: (Please) eat a gun*)
-- Arschfotze:	Ass- Cunt	
-- Arschgeige:	Dickhead 
-- Arschgesicht:Assface 
-- Arschloch:	Asshole	
-- Bloede Kuh / Blvde Fotze: Fucking Cunt
-- Blvdes Arschloch	stupid asshole	
-- Bulle: Cop	
-- Bumsen: To fuck	
-- Das ist mir furzegal / Das ist mir scheißegal: I don't give a fuck!
-- Hurensohn: Son of a whore
 
  
 ## Iceland
