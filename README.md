@@ -227,6 +227,48 @@ Every contribution is welcome :)
 - Jaj istenem, mondd csak mi a baj, adok a bucidra egy gyógyítópuszit: Shut up you whiny little bitch
 - Basszon teherbe egy kecske. May the goat fuck you pregnant.
 - Basszon seggbe egy kecske. May the goat fuck you in the ass.
+- Baszni : to fuck
+- Baszni rá : to not to give a fuck about
+- Mi a fasz van veled?! : What the fuck is (wrong) with you?! (*Literally: What the dick is with you?!*)
+- Mi a picsa van veled?!: What the fuck is (wrong) with you?! (*Literally: What the pussy is with you?!*)
+- Baszd meg magad! : Go fuck yourself!
+- Basszon agyon a kénköves istennyila! : Get fucked to death by lightning with sulphuric stones!
+- Bassza meg a jegesmedve! : Damn it! (*Litteral: May a polar bear fuck it!*)
+- Ó, hogy bassza meg egy talicska apró majom! : Damn it! (*litteral: Oh, may a wheelbarrow of small monkeys fuck it!*)
+- Te faszszopó kis geci! : You cocksucker little scum!
+- A mocskos kurva anyádat! : Your dirty bitch mother!
+- Hát ilyet még nem basztam! : I haven’t seen anything like this in my life! (*litteral: Ooh, I have not fucked anything like this before!*)
+- Kapd be! : Suck it! (*litteral: Take it into your mouth*)
+- Kapd be a faszom! : Suck my dick!
+- Kapd be a szőrös faszom! : Suck my hairy dick!
+- Kapd be a szőröst! : Suck the hairy!
+- Ne szarozz velem! : Don’t mess with me!
+- Ne szarakodj velem! : Don’t mess with me!
+- Ne baszakodj velem! : Don’t fuck with me!
+- Szétbasz az ideg! : I am fucking angry! (*litteral: The nerves is fucking me apart*)
+- Mi a bánatos picsáért kellett ezt tenned? : Why the fuck you did this? (*litteral:Why the sorrowful vagina you should have done this?)
+- Mi a faszt csinálsz? : What the fuck are you doing? (*litteral:What the dick are you doing?)
+- Mi az anyád Úristenit csinálsz? : What the fuck are you doing ? (*litteral:What your mother’s God are you doing?*)
+- Mi az anyád picsáját csinálsz? : What the fuck are you doing? (*litteral:What your mother’s vagina are you doing?*)
+- Szívd ki a lukamat! : Suck me off! (*litteral:Suck my hole/asshole out!*)
+- Szívd ki a faszomat! : Suck me off! (*litteral:Suck my dick out!*)
+- Az azbeszt megbaszta! : Fuck it! (*litteral:The asbestos fucked it!)
+- Mi a faszért csinálod ezt? : Why the fuck are you doing this? (*litteral:Why the dick are you doing it?*)
+- Mi a faszomért csinálod ezt? : Why the fuck are you doing this? (*litteral:Why (for) my dick are you doing it?*)
+- A ménkű csapjon beléd! : May the lightning hit you!
+- A rosseb egyen meg! : Pox on you!
+- A macska rúgjon meg! : May the cat kick you!
+- Rúgjon meg a ló! : May the horse kick you!
+- Az ördög vigyen el! : May the devil take you!
+- A holló/varjú vájja ki a szemed! : May the raven/cros gouge out your eye!
+- Hogy a görcs álljon beléd! : May the cramp stand into you!
+- Hogy az Úristen szólítana magához! : May the Lord call you to himself!
+- Hogy egyenesedjen ki az EKG-d! : May your EKG become a line!
+- Simuljon ki az EKG-d! : May your EKG become smooth!
+- Kapd be a faxom! : Suck my fax!
+- A fityfene egyen meg! : May the fityfene eat it!
+- Nyasgem! : Fuck off!
+- Nyald ki a seggem! : Kiss my ass! (*litteral:Lick my ass out!*)
 - To call a woman a sexual worker, can scale based on behavior:
     - Léha: Lusty, Lustful (also meaning lazy) used for an unruly lady, a less insulting term
     - Céda: prostitute, in this meaning a woman who performs oral sex a lot coming from the ciddázni term (giving somebody a head)
