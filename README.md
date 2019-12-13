@@ -190,6 +190,7 @@ Every contribution is welcome :)
 - Bumsen: To fuck	
 - Das ist mir furzegal / Das ist mir scheißegal: I don't give a fuck!
 - Hurensohn: Son of a whore
+- Scheisse: Shit
 
 ## Greece
 - Malakas / Μαλάκας: Jerk / Asshole / Wanker
