@@ -174,6 +174,22 @@ Every contribution is welcome :)
 - Nique sa mère la pute en string de guerre qui suce des pipes: Oh fuck (*literally: Fuck his/her mom, who is wearing a war G-String while sucking dicks*). Yes. Frenchies like to flex their insults :D
 
 ## Germany
+- Scheisse: Shit
+- Steckdosenbefruchter: Plug-socket-inseminator
+- Evolutionsbremse: Evolution-brake
+- Kotstulle: Poop-sandwich
+- Hodenkobold: Scrotum-leprechaun
+- Kotnascher: Poop-nibbler
+- Pimmelbär: Dick-teddy
+- Puffgezeugte Arschgeburt: Brothel-conceived-anal-birth
+- Arschloch: asshole
+- Hurensohn: son of a whore 
+- Fotze: Cunt
+- Wichser: Wanker
+- Ficker: Fucker
+- Dumme Sau: Stupid sow
+- Idiot: Idiot
+- Hurensohn: Son of a whore
 - Arschgeige: Faggot (*litteral: play violin with his ass*)
 - Bananenbieger: Faggot (*litteral: bends with his ass*)
 - Arsch mit ohren: Moron (*litteral: butt with ears*)
@@ -189,8 +205,8 @@ Every contribution is welcome :)
 - Bulle: Cop	
 - Bumsen: To fuck	
 - Das ist mir furzegal / Das ist mir scheißegal: I don't give a fuck!
-- Hurensohn: Son of a whore
-- Scheisse: Shit
+
+
 
 ## Greece
 - Malakas / Μαλάκας: Jerk / Asshole / Wanker
