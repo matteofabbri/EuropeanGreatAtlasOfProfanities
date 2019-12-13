@@ -206,6 +206,7 @@ Every contribution is welcome :)
 - Gamo ta pethamena soy: I fuck your dead loved ones
  
  ## Hungary 
+ - Hogy baszna seggbe a saját undorító klónod egy szarba mártott lófasszal. (Dr. Flash után szabadon: May your own disgusting clone fuck you in the ass with a horse dick dipped in shit.
 - Bazdmeg : short for basszad meg, literally means fuck that, generally used for fuck you and fuck or shit as an exclamation
 - Kurva : means whore or bitch, can be combined with a lot a words, similar to fucking in English
 - Kurva anyád : an often used combination, literally means your mother is a bitch, but used for fuck you
