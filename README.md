@@ -222,6 +222,9 @@ Every contribution is welcome :)
 - Az ördög szánkázzon a hátán: May the devil ride a sleigh on his back
 - Szarjál sünt!: May you shit a hedgehog.
 - Nőjön gitár a hasadba és pengesse a rák! : May a guitar grow in your belly and let the cancer play it.
+- Eszem azt az ici-pici szívedet: I'm gonna rip your heart out and feast on it!
+- Elvitte a cica a nyelvedet ? : Are you fucking retarded ?
+- Jaj istenem, mondd csak mi a baj, adok a bucidra egy gyógyítópuszit: Shut up you whiny little bitch
 - To call a woman a sexual worker, can scale based on behavior:
     - Léha: Lusty, Lustful (also meaning lazy) used for an unruly lady, a less insulting term
     - Céda: prostitute, in this meaning a woman who performs oral sex a lot coming from the ciddázni term (giving somebody a head)
