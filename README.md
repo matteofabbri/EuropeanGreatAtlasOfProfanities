@@ -271,6 +271,7 @@ Every contribution is welcome :)
 - A fityfene egyen meg! : May the fityfene eat it!
 - Nyasgem! : Fuck off!
 - Nyald ki a seggem! : Kiss my ass! (*litteral:Lick my ass out!*)
+- Veszteg, kurvanő fia szaros német, ittátok vérünket, ma isszuk ti véreteket: Stay put you son of a whore, filthy German, you've drunk our blood once, today we will drink your blood !
 - To call a woman a sexual worker, can scale based on behavior:
     - Léha: Lusty, Lustful (also meaning lazy) used for an unruly lady, a less insulting term
     - Céda: prostitute, in this meaning a woman who performs oral sex a lot coming from the ciddázni term (giving somebody a head)
