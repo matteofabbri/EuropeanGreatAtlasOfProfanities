@@ -222,6 +222,17 @@ Every contribution is welcome :)
 - Az ördög szánkázzon a hátán: May the devil ride a sleigh on his back
 - Szarjál sünt!: May you shit a hedgehog.
 - Nőjön gitár a hasadba és pengesse a rák! : May a guitar grow in your belly and let the cancer play it.
+- To call a woman a sexual worker, can scale based on behavior:
+    - Léha: Lusty, Lustful (also meaning lazy) used for an unruly lady, a less insulting term
+    - Céda: prostitute, in this meaning a woman who performs oral sex a lot coming from the ciddázni term (giving somebody a head)
+    - Cafka: prostitute, coming from the word cafat wich means a bit of something usually used for a piece of meat
+    - Riherongy: used rag, dirty rag, for women who very often engage in shameful behavior
+    - Szuka: bitch, the terms used for the females of the canine genus
+    - Szajha: prostitute, whore, used for displaying frequency of lewd and sexual behavior, this term is one of the end points of this kind of insults
+    - Kurva: prostitute, as a profession also there is the word prosti which is the english term directly just shortened
+    - Ribanc: whore, a worst degree, this displays sexual actvity without regards to gender and taxomony (used for bestiality and necrophilia)
+    - these are often paired with the following to make long insults or complex sentences: utolsó (last), faluvégi (villages end), mocskos koszos(dirty), szennyes (filthy), büdös (stinky) rühes (diseased).
+        - Example sentence: Te utolsó, koszos büdös szuka, még az anyád is egy faluvégi szajha volt, te ribanc!: You last filthy, stinky bitch, even your mother was a prostitute from the village's end, you whore!)
 
 
 ## Germany
