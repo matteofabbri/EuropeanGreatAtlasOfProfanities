@@ -1,0 +1,29 @@
+## Albania
+- Te qifsha: Fuck you
+- Ha Mut: Eat shit
+- Lapeci / Pidhi: Cunt
+- Lavire: Whore
+- Simge: Your dads a shopkeeper (WTF ?!?)
+- Ta qifsha nanen: Fuck you mother
+- Ta qift bota nanen: May world fuck your mother
+- Te qifsha motren: I will fuck you
+- Te qifsha pidhin e mamit: I'll fuck your mom's pussy
+- Ti qifsha merimangat mbas bojlerit: I will fuck the spiders behind the water heater in your house
+- Te qifsha listen e dasmes pillropsh: I will fuck your wedding guest,you pussytribe.
+- Te qifsha motren: I will fuck your sister
+- Karakurv: Pimps bottom bitch (*kara - dicks & kurv - bitch *)
+- T'dhesha n'fyt: I shit in your throat (*to someone who talks too much or bad things*)
+- T'pjerdhsha n'vesh: i fart in your ear (*to someone who cant hear well*)
+- U qifsh me gomar: Go fuck a donkey
+- Te qift kina nanen: May all hina's population fuck yout mom
+- Te qifsha t'bardhet e syve: fuck your eye whites (WTF ?!?)
+- N'pidh t'satam: In your mother's pussy (*when somebody asks where are you*)
+- Shkërdhat mutit - Shitty fucker
+- Bole kandarit - Dumbass
+- Ta qi kush ta bon buken: I will fuck whoever prepares your meal.
+- Do te shti prej ku ke dal: I will shove you back from whence you came.
+- Per ty nena edhe halla jan nje njeri: I your mom and aunt are the same person.
+- Ta qi nonen ne varp: I will fuck your mom in her grave.
+- Shkërdhat: Faggot / Idiot
+- Tqisha dekt nvorr: Fuck your dead relatives in their grave
+- Tqifshin zezakt motren: Let the niggas hardfuck your sister
