@@ -1,7 +1,10 @@
 # European Great Atlas Of Profanities
-Building a guide for swearwords, profanities and insults in every language of The Continent
+Building an easy guide for swearwords, profanities and insults in every language of The Continent
 
 Every contribution is welcome :)
+
+[Iceland](#Iceland)
+
 
 ## Albania
 - Te qifsha: Fuck you
