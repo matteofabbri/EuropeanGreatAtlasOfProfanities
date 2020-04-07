@@ -3,9 +3,6 @@ Building an easy guide for swearwords, profanities and insults in every language
 
 Every contribution is welcome :)
 
-[Iceland](#Iceland)
-
-
 ## Albania
 - Te qifsha: Fuck you
 - Ha Mut: Eat shit
