@@ -1,13 +1,15 @@
-## Cechia
+## Czechia
 - Prdel: Ass
-- Prdele <Subject>: That/Those fucking <subject> (*"Ty prdele cesky"* - *"Those fucking czechs"*)
-- Kurwa: Whore
-- Tivole: Fuck you (*also: anywhere is there is space for that *)
-- Kurwa do pici: (litteral: *That bitch is a prostitute*) Turbo Fuck Off
+- Prdele <Subject>: That/Those fucking <subject> (*"Prdele práce!"* - *"Fuck this job!"*)
+- Kurva: Whore
+- Ty vole: lit. "You ass"
+    - speech intensifier, used similarly as "man" or "dude"
+    - exclamation of awe or anger
+- Kurva do píči: Turbo Fuck Off
     - Generally used to show that you are member of the finest society and the alpha male of the pack
-- Buzne: Faggot
+- Buzna: Faggot
 - Tepla: Lesbian
-- Čůrak / Zmrd: Dick / Dickhead / Son of a bitch
-- Baba: Old bicth
+- Čůrák / Zmrd: Dick / Dickhead / Son of a bitch
+- Bába: Old hag
 - Zkurvysyn: Son of a bitch
-- Jebat: Fuck
+- Jebat: to fuck
