@@ -1,5 +1,6 @@
 # 🇪🇺 European Great Atlas Of Profanities
 Building an easy guide for swearwords, profanities and insults in every language of The Continent.
+
 Contributions come mainly from friends, collegues and fellow redditors.
 
 Every contribution is welcome :)
