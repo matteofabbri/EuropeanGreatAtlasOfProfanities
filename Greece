@@ -1,0 +1,30 @@
+## Greece
+- Malakas / Μαλάκας: Jerk / Asshole / Wanker
+- Gamo to christo su: I fuck your jesus. Often used against objects or situations.
+- Gamo tin panagia su: I fuck your Holy Mary
+- Gamo to mouni pou se glistrage: I will fuck your mother
+- Ante gamisou: Go fuck yourself
+- Gamo to <The Target>: I fuck <The Target>
+- Poutana: Whore
+- Poutanas Gie / Πουτάνας γιε: Son of a whore
+- To mouni tis manas sou: The pussy of your mother
+- To mouni pou se petage:  I fuck the pussy that had thrown you (into existence)t
+- Fae skata: Eat shit
+- Gamo to spiti sou: Fuck your house
+- Θα μου κλάσεις τα αρχίδια: You will fart my balls (!Need translitteration)
+- Mounopano: Pathetic (*litteral: medieval tampoon*) 
+- Ilithie: Idiot
+- Vlaka: Stupid
+- Ai sto Diaolo: Go the Hell (*litteral go to devil*)
+- Gamioli / Γαμιόλη: Fucker
+- Pousti / Πούστη: Faggot
+- Psofa / Ψόφα: Go die
+- Pisoglentis / Πισογλέντης: A man who takes it in the ass and likes it (my best attempt at explaining it)
+- Gamo to soi sou / Γαμώ το σόι σου: I fuck your family
+- Koloxontros / Κωλόχοντρος: Fat fuck (e.g. *You are a fat fuck*)
+- Arxidi / Αρχίδι: Ballsack
+- Gamo to spiti sou / Γαμώ το σπίτι σου: I fuck your house
+- Poutsoglifits / Πουτσογλίφτης: cock licker
+- Mikropsolis / Μικροψώλης: A man with a tiny dick
+- Patsolas / Πατσόλας: Fat fuck (similar to Koloxontros)
+- Gamo ta pethamena soy: I fuck your dead loved ones
