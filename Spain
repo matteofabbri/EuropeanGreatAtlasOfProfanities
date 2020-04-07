@@ -1,0 +1,12 @@
+## Spain
+- Capullo: Jerk
+- Gilipollas: Shithead
+- Tonto del culo: (*litteral: An idiot of the ass*) Dumbass
+- La concha de tu madre: The pussy of your mom
+- Me cago en la leche: (*litteral: i shit the milk*) I dont give a fuck
+- Me importa un culo: (*litteral: I care about an ass*) I dont give a shit
+- Coma mierda: Eat shit
+- Mierda: Shit
+- Marica: Faggot
+- Pendejo: Moron
+- Chinga tu madre / Chinga tu puta madre: Fuck your mother / Fuck that bitch of your mother
