@@ -1,0 +1,24 @@
+## Denmark
+- Fanden: Fuck
+- Ej forhedvede: Bloody hell
+- Båtnak: Dumbass
+- Røvbanan: Motherfucker
+- Pikansjos: Dickhead
+- Bidesild: Beetles
+- Bløddyr: Mollusks
+- Bollefjæs: Bollards
+- Fedtefyre: Fatty guys
+- Hundehoveder: Dog heads
+- Feje hundehoveder: Sweep dog heads
+- Fnatmider: Scabies
+- Fæhoveder: Moths
+- Grødbønder: Porcupines
+- Hængerøve: Hangovers
+- Ignoranter: Ignorants
+- Jammerkommoder: Junk dressers
+- Karklud: Dishcloths
+- Elendige: Miserable squatters
+- Klamhuggere: Batsmen
+- Klodsmajor: Lice-breathers
+- Lusepustere: Scavengers
+- Sut din mors pik mand: Suck the dick of your mom
