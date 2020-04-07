@@ -1,0 +1,15 @@
+## Iceland
+- Helvítis djöfulsins andskotans fuckin þurrkuntumella: Hell’s devil’s devil’s “fuckin” dry-cunt-hooker 
+    - (devil is twice because the two adjacent words have the same meaning).
+- Durtur: Churl / Someone who is mean and uncivilised / Gob;in
+- Ansans / Andskotinn: Devil (*literally: the one who shoots against you*)(WTF ?!?) 
+- Drullusokkur: Mud / Shit / Diarrhea / Sock
+- Tussa / Drusla: cunt
+- Skítseiði: Scum / Shitpot / Filth
+- Mörður: Name of a back-stabbing slimy scoundrel from their stories who was so infamous that his very name became an insult.
+- Vörtuböllur: Vörtuböllur 
+- Skrattinn sjálfur: the devil himself
+- Skíthæll: A shitty person (*litteral: Shit heel*)
+- Helvítis/helvískur : Hellish
+- Náriðill : Corpse fucker
+- Afa rúnkari : Grandpa wanker
