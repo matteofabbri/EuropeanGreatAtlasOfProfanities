@@ -1,0 +1,78 @@
+ ## Hungary 
+ - Hogy okádnál alvadt vért! : Hope you vomit a congealed blood!
+ - Hogy baszna seggbe a saját undorító klónod egy szarba mártott lófasszal. (Dr. Flash után szabadon: May your own disgusting clone fuck you in the ass with a horse dick dipped in shit.
+- Bazdmeg : short for basszad meg, literally means fuck that, generally used for fuck you and fuck or shit as an exclamation
+- Kurva : means whore or bitch, can be combined with a lot a words, similar to fucking in English
+- Kurva anyád : an often used combination, literally means your mother is a bitch, but used for fuck you
+- Geci : literally means jizz or cum, generally used to say of a person, means something like dick or jerk. Quite often used to refer to Viktor Orbán
+- Gecc : shortened form of geci, used for emphasis at the end of a sentence, imagine the Jesse Pinkman bitch
+- Szar : crap or shit
+- Fos : literally diarrhea, but a stronger version of szar
+- Fasz : dick
+- Faszkalap : literally dick hat, used referring to a person
+- Segg : arse
+- Lófasz : literally horse dick, generally used for bullshit
+- Picsa : cunt
+- Kurvaistenfaszát: The cock of a whore god
+- Az ördög szánkázzon a hátán: May the devil ride a sleigh on his back
+- Szarjál sünt!: May you shit a hedgehog.
+- Nőjön gitár a hasadba és pengesse a rák! : May a guitar grow in your belly and let the cancer play it.
+- Eszem azt az ici-pici szívedet: I'm gonna rip your heart out and feast on it!
+- Elvitte a cica a nyelvedet ? : Are you fucking retarded ?
+- Jaj istenem, mondd csak mi a baj, adok a bucidra egy gyógyítópuszit: Shut up you whiny little bitch
+- Basszon teherbe egy kecske. May the goat fuck you pregnant.
+- Basszon seggbe egy kecske. May the goat fuck you in the ass.
+- Baszni : to fuck
+- Baszni rá : to not to give a fuck about
+- Mi a fasz van veled?! : What the fuck is (wrong) with you?! (*Literally: What the dick is with you?!*)
+- Mi a picsa van veled?!: What the fuck is (wrong) with you?! (*Literally: What the pussy is with you?!*)
+- Baszd meg magad! : Go fuck yourself!
+- Basszon agyon a kénköves istennyila! : Get fucked to death by lightning with sulphuric stones!
+- Bassza meg a jegesmedve! : Damn it! (*Litteral: May a polar bear fuck it!*)
+- Ó, hogy bassza meg egy talicska apró majom! : Damn it! (*litteral: Oh, may a wheelbarrow of small monkeys fuck it!*)
+- Te faszszopó kis geci! : You cocksucker little scum!
+- A mocskos kurva anyádat! : Your dirty bitch mother!
+- Hát ilyet még nem basztam! : I haven’t seen anything like this in my life! (*litteral: Ooh, I have not fucked anything like this before!*)
+- Kapd be! : Suck it! (*litteral: Take it into your mouth*)
+- Kapd be a faszom! : Suck my dick!
+- Kapd be a szőrös faszom! : Suck my hairy dick!
+- Kapd be a szőröst! : Suck the hairy!
+- Ne szarozz velem! : Don’t mess with me!
+- Ne szarakodj velem! : Don’t mess with me!
+- Ne baszakodj velem! : Don’t fuck with me!
+- Szétbasz az ideg! : I am fucking angry! (*litteral: The nerves is fucking me apart*)
+- Mi a bánatos picsáért kellett ezt tenned? : Why the fuck you did this? (*litteral:Why the sorrowful vagina you should have done this?)
+- Mi a faszt csinálsz? : What the fuck are you doing? (*litteral:What the dick are you doing?)
+- Mi az anyád Úristenit csinálsz? : What the fuck are you doing ? (*litteral:What your mother’s God are you doing?*)
+- Mi az anyád picsáját csinálsz? : What the fuck are you doing? (*litteral:What your mother’s vagina are you doing?*)
+- Szívd ki a lukamat! : Suck me off! (*litteral:Suck my hole/asshole out!*)
+- Szívd ki a faszomat! : Suck me off! (*litteral:Suck my dick out!*)
+- Az azbeszt megbaszta! : Fuck it! (*litteral:The asbestos fucked it!)
+- Mi a faszért csinálod ezt? : Why the fuck are you doing this? (*litteral:Why the dick are you doing it?*)
+- Mi a faszomért csinálod ezt? : Why the fuck are you doing this? (*litteral:Why (for) my dick are you doing it?*)
+- A ménkű csapjon beléd! : May the lightning hit you!
+- A rosseb egyen meg! : Pox on you!
+- A macska rúgjon meg! : May the cat kick you!
+- Rúgjon meg a ló! : May the horse kick you!
+- Az ördög vigyen el! : May the devil take you!
+- A holló/varjú vájja ki a szemed! : May the raven/cros gouge out your eye!
+- Hogy a görcs álljon beléd! : May the cramp stand into you!
+- Hogy az Úristen szólítana magához! : May the Lord call you to himself!
+- Hogy egyenesedjen ki az EKG-d! : May your EKG become a line!
+- Simuljon ki az EKG-d! : May your EKG become smooth!
+- Kapd be a faxom! : Suck my fax!
+- A fityfene egyen meg! : May the fityfene eat it!
+- Nyasgem! : Fuck off!
+- Nyald ki a seggem! : Kiss my ass! (*litteral:Lick my ass out!*)
+- Veszteg, kurvanő fia szaros német, ittátok vérünket, ma isszuk ti véreteket: Stay put you son of a whore, filthy German, you've drunk our blood once, today we will drink your blood !
+- To call a woman a sexual worker, can scale based on behavior:
+    - Léha: Lusty, Lustful (also meaning lazy) used for an unruly lady, a less insulting term
+    - Céda: prostitute, in this meaning a woman who performs oral sex a lot coming from the ciddázni term (giving somebody a head)
+    - Cafka: prostitute, coming from the word cafat wich means a bit of something usually used for a piece of meat
+    - Riherongy: used rag, dirty rag, for women who very often engage in shameful behavior
+    - Szuka: bitch, the terms used for the females of the canine genus
+    - Szajha: prostitute, whore, used for displaying frequency of lewd and sexual behavior, this term is one of the end points of this kind of insults
+    - Kurva: prostitute, as a profession also there is the word prosti which is the english term directly just shortened
+    - Ribanc: whore, a worst degree, this displays sexual actvity without regards to gender and taxomony (used for bestiality and necrophilia)
+    - these are often paired with the following to make long insults or complex sentences: utolsó (last), faluvégi (villages end), mocskos koszos(dirty), szennyes (filthy), büdös (stinky) rühes (diseased).
+        - Example sentence: Te utolsó, koszos büdös szuka, még az anyád is egy faluvégi szajha volt, te ribanc!: You last filthy, stinky bitch, even your mother was a prostitute from the village's end, you whore!)
