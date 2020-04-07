@@ -5,9 +5,9 @@ Contributions come mainly from friends, collegues and fellow redditors.
 Every contribution is welcome :)
 
 ## :tada: Over the Top Countries
-  [Romania](Romania.md)
-  [Albania](Albania.md)
-  [Greece](Greece.md)
+  - [Romania](Romania.md)
+  - [Albania](Albania.md)
+  - [Greece](Greece.md)
     
 ## Missing Countries
  - Ireland
