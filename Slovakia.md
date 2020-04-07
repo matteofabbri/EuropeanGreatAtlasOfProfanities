@@ -1,0 +1,19 @@
+## Slovakia
+- Jebať: lit. "to fuck", this word is a multitool
+  - prijebať (niekomu): to punch sb. or hit them with a weapon
+  - ujebať (niečo): to steal sth.
+  - odjebať (niečo): to knock sth. away from its place
+  - odjebať (niekoho): to kill sb.
+  - odjebať (niekoho): to take sb.'s breath away
+    - "Ma odjebalo!": "I was taken aback!"
+  - vyjebať (s niekým): to fuck sb. over
+  - podjebať (niekoho): to trick sb., to cheat on sb.
+  - dojebať (niekoho): to tell sb. off, to scold sb.
+  - zjebať (niekoho): to tell sb. off, to scold sb.
+  - zajebať (niekoho): to kill sb.
+    - "Si zajebal!": (excl. of approval) "You killed it!"
+  - najebaný: drunk
+  - vyjebaný, pojebaný, zajebaný, prijebaný: fucking (adj.)
+  - "Jebať!": (excl.) "Fuck that!"
+  - "Jebem ti mater": "Fuck your mother"
+  - Vyjebanec: Fucker
