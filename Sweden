@@ -1,0 +1,20 @@
+## Sweden
+- Fan: Fuck
+- Jävlar: Damn it
+- Helvete: (Go to) Hell
+- Skit/ Skitt/ Drit / Dritt: Shit
+- Kioskmongo / Magnumidiot / : Moron
+- Attans bananer: Darn Bananas (WTF ?!?)
+- Satfläsk: Moron bastard
+- Horunge: Whore kid
+- Satfläsk: Pork of Satan
+- Jävla luder: Fucking whore
+- äckelsvin: Creepy pig
+- Kuken: Cock
+- Vad i kuken?! What the fuck (*literraly: what the cock?*)
+- Fettmablobb: Fat blob
+- Super äckelsvin: Super Disgusting-Swine
+- Sladdriga Gasselkukförhud: Sloppy Gazelle-Foreskin
+- Äckliga sönderknullade fucking fitthora med läderfejs: Disgusting Fucked until Broken Fucking Cunt-Whore with a Leather-Face
+- Rövuggla: Ass Owl
+- Babian arsle: Baboon arse
