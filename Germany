@@ -1,0 +1,32 @@
+## Germany
+- Scheisse: Shit
+- Steckdosenbefruchter: Plug-socket-inseminator
+- Evolutionsbremse: Evolution-brake
+- Kotstulle: Poop-sandwich
+- Hodenkobold: Scrotum-leprechaun
+- Kotnascher: Poop-nibbler
+- Pimmelbär: Dick-teddy
+- Puffgezeugte Arschgeburt: Brothel-conceived-anal-birth
+- Arschloch: asshole
+- Hurensohn: son of a whore 
+- Fotze: Cunt
+- Wichser: Wanker
+- Ficker: Fucker
+- Dumme Sau: Stupid sow
+- Idiot: Idiot
+- Hurensohn: Son of a whore
+- Arschgeige: Faggot (*litteral: play violin with his ass*)
+- Bananenbieger: Faggot (*litteral: bends with his ass*)
+- Arsch mit ohren: Moron (*litteral: butt with ears*)
+- Stinkstifel: Redneck  (*litteral: stinky feet*)
+- Erbenzähler / Ameisentätowierer: Autistic
+- Heißluftgebläse: Chatterbox (*litteral: (Please) eat a gun*)
+- Arschfotze:	Ass- Cunt	
+- Arschgeige:	Dickhead 
+- Arschgesicht:Assface 
+- Arschloch:	Asshole	
+- Bloede Kuh / Blvde Fotze: Fucking Cunt
+- Blvdes Arschloch	stupid asshole	
+- Bulle: Cop	
+- Bumsen: To fuck	
+- Das ist mir furzegal / Das ist mir scheißegal: I don't give a fuck!
