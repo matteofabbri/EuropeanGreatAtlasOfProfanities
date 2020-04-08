@@ -11,7 +11,6 @@ Every contribution is welcome :)
   - [Greece](Greece.md)
     
 ## Missing Countries
- - Ireland
  - Estonia
  - Lettonia
  - Lituania
@@ -25,6 +24,7 @@ Every contribution is welcome :)
   - Belgium
   - Finland
   - Poland
+  - Ireland
 
 ## Single phrase countries :(
 
