@@ -31,8 +31,5 @@ Every contribution is welcome :)
 ### Serbia:
 - Pusi mi kurac: Suck my dick
 
-### Slovakia
-- To je pičovina jak voda v koši: That's bullshit like a water in a bin
-
 ### Russia:
 - Cyka blyat: Fucking bitch
