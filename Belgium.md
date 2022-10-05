@@ -1,8 +1,12 @@
 ## Belgium
 - Kwal: Cuny (*littearal: Jellyfish*)
-- Zak:Ballsack
+- Zak: Ballsack
 - Viswijf: Loudy bitch (*littearal: A woman who sells fish*)
 - Kut: Cunt
+- Kutwijf: Cunt
 - Klootzak: Asshole
 - Paljas: Jerk
 - Makak / Voale zwetzak: Nigger
+- Eikel: Dickhead 
+- Kus m'n kloten: Suck my balls (*littearal: Kiss my balls*)
+- Marginaal: chav

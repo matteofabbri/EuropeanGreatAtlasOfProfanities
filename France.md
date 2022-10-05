@@ -5,15 +5,16 @@
 - Abruti: Moron
 - Connard / Connasse: Cunt (for Males / for Females)
 - Tu me gonfles: You are pissing me off (*literally: you're inflating my balls*)
-- Dégage: Fuck off
+- Dégages: Fuck off
 - Fils de pute / Salaud: Son of a bitch
 - Nique ta mère: Fuck your mother
 - Nique ta race: Fuck your race (Fuck you)
 - Nique sa mère / Sa mère la pute: Holy fucking shit (*literally: Fuck his/her mother, His/her mother the whore*)
 - Sac à merde: (*You are a*) bag of shit
 - Putain: Oh fuck (*literally: bitch*)
-- Pute / Salope: Bitch
-- Va te faire enculer / Va te faire foutre: Go fuck yourself
+- Pute: Whore
+- Salope: Bitch
+- Vas te faire enculer / Vas te faire foutre: Go fuck yourself
 - Mange tes morts: Eat your dead relatives
 - Rital: Slur for Italians
 ### If you want to show off

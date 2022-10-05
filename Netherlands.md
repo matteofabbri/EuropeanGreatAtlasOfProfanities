@@ -6,12 +6,12 @@
 - Kanker: (*You are a*) Cancer
 - Krijg de kanker: Get the cancer
 - Kankeren: To bitch (*literally: to cancer*)
-- Klere: (I hope you take) Cholera
+- (Krijg de) Klere: (I hope you take) Cholera
 - Minkukel: Retarded
 - Pleurislijer / Tering / Teringlijer: (I hope you take) Tuberculosis
 - Polio: You had been retarded by Poliomyelitis
-- Pokke: (I hope you take) Smallpox
-- Stom: Retarded
+- (Krijg de) Pokke: (I hope you take) Smallpox
+- Idioot: Retard
 - Takke:(*You look retarded as you had a*) Stroke
 - Tyfus: (I hope you take) Typhoid fever
 - Vinkentering: (I hope you take) Finch tuberculosis
@@ -22,3 +22,4 @@
 - Dikzak: Fat bag
 - Drol: Turd
 - Vuile rot mof: Fucking German
+- Tokkie: Chav
